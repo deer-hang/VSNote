@@ -78,6 +78,62 @@
 - The bank was rotten to the core.
 - And fill all fruit with ripeness to the core.
 - Antarctica has a huge thick ice crust and underneath there is this liquid lake.
+- Numerius, you are filthy! - I fear he will form a crust if not sent to water.
+- The magnitude of the earthquake reflects how much of the earth's crust ruptures.
+- Those earthquakes are typically very destructive, or as deep as 400 miles down into the crust.
+- The crust is not just the land above the oceans. It's the entire outer layer of the planet.
+- Does she cut the crusts off your sandwich, too?
+- I always wondered what is would be like to have a mother who cut the crusts off my sandwiches.
+- He doesn't like crust on his sandwiches, and he likes to sleep with a little light on.
+- Slice the bread and cut off the crusts.
+- Please, Polliver. Some food. Just a crust of bread.
+- As bread ages, it develops the dry, crumbly texture and leathery crust that define staleness.
+- The dish is delicious and tender with a crispy crust.
+- I'd rather melt cheese on cardboard than eat a pizza with a whole wheat crust.
+- Neapolitan pizza has a thin crust. The edge of the crust, when baked, grows larger.
+- That's because a cake and a pie crust cook at different temperatures.
+- Is...is it a pie? Yes, it's a pie with a Z in the crust.
+- Just bake them for fifteen minutes for a light texture and a cheesy crust.
+- The mantle is made of rock.
+- We've gone through the crust, through the mantle and through the outer core.
+- Early Earth's mantle was an ocean of molten rock, called magma.
+- The company thought it would be best to pass the mantle on to Eva.
+- So he always took on the mantle of looking after everyone.
+- And now, because your friend murdered my father, I also wear the mantle of king.
+- He saw the Witch take off her outer mantle.
+- Then put this mantle over all to hide the sword and the wallet. - That's right.
+- What a magnificent train there is to the mantle, and how gracefully the scarf hangs!
+- A long, drab-coloured coat she wore, a mantle, reaching to her feet.
+- Again I ran, and again returned, bearing an immense mantle lined and edged with fur.
+- Like a king, like a god, full frontal, mantled in lustrous gold.
+- Come I too late? - Aye, if you come not in the blood of others, but mantled in your own.
+- A thick mantle of snow lay on the ground.
+- The squares looked grim under a mantle of soot and ash.
+- All he knows is his current latitude, longitude, and altitude.
+- The other thing you need on that map is longitude and latitude.
+- Hey, dad. What are you looking at? - Uh, coordinates. Longitude and latitude.
+- Longitude is a measure of time east or west.
+- I need you to pick me up at 115 longitude, 35 degrees latitude directly under Orion's belt.
+- If Michael's correct, the time, date, and longitude mean he's somewhere here in Russia.
+- But Mau did not operate on latitude, longitude, angles, or mathematical calculations of any kind.
+- And so they head for the temperate seas of the higher latitudes.
+- At these latitudes, the sun's rays are weak and grass can only grow here for a few months a year.
+- North America will suffer more intense droughts, and crop diseases will spread to new latitudes.
+- But then the cold air that's normally locked up over the arctic gets displaced and it heads to lower latitudes.
+- At 40 degrees latitude, severe westerly winds known as the Roaring Forties blast the coastline.
+- He offered to divide Oregon at the forty-ninth parallel of latitude.
+- To navigate across the latitudes, they use the natural beacons of the universe: the sun, the stars.
+- Arcadia, Missouri...is at 40 degrees north latitude.
+- Mr.President, I have given you a great deal of latitude to sort out your domestic situation.
+- But you would enjoy much greater latitude than normal law enforcement.
+- But we allow them enough latitude to do the job we brought them in to do.
+- I know you guys are used to having some latitude, but on this, you go where I go, and that's it.
+- That's why we have to act now under the radar while we still have some latitude.
+- It's based on a view of humanity where people are given the latitudes they need to be their very best.
+- Look, I allowed you latitude with the Hammonds before so you could pursue the bigger story.
+- At 9:36 pm, the sun sank below the horizon.
+- She was swimming toward the horizon, toward the sun.
+
 
 
 
