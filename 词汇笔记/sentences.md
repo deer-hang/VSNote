@@ -1,0 +1,84 @@
+- Now music is also used to create atmosphere in films.
+- So they put on music with a slow tempo ti create a more relaxed atmosphere.
+- The atmosphere inside number four, Privet Drive was extremely tense.
+- I spent a month at Moor House, in an atmosphere of warm friendship.
+- What I do to is manage to create an atmosphere of support for the people working with me.
+- The Earth's atmosphere began to change.
+- They say it pollutes groundwater and sends harmful gases into the atmosphere.
+- And more and more of that global warming pollution is being dumped in the atmosphere each year.
+- The heat from the upper atmosphere would've ignited fires everywhere that fuel was available.
+- Yes, but the atmosphere is dangerously thin.
+- They shouldn't work in smoky atmospheres.
+- Engines are offline! We're venting atmosphere!
+- I thought that was the best atmosphere of the season.
+- I mean, it's still full of atmosphere and my gosh, it would've been like that in the '40s and '50s.
+- The moon has no atmosphere, no free oxygen, and no surface moisture.
+- Mars, not a warm place. It does not have much atmosphere. It can't hold water.
+- Mercury doesn't have an atmophere so the sky would be black.
+- This is the sun's atmosphere colliding with the Earth's atmosphere.
+- Hydro means water, so the hydrosphere is made of all the water on earth.
+- Earth's physical systems include the atmosphere, hydrosphere, lithosphere, and biosphere.
+- And with more oxygen, the crust would be heavier, making the lithosphere heavier than our atmosphere.
+- Without oxygen, we quickly die.
+- Take a deep breath of oxygen.
+- So the brain isn't getting enough oxygen.
+- That is why passenger planes are equipped with oxygen masks.
+- There are no oxygen tanks on airplanes.
+- 19.8%, oxygen levels are lower than usual.
+- Like all mammals, they need to breathe oxygen.
+- Currently, oxygen is about 21 percent of the atmosphere.
+- This means that they take in oxygen and release carbon dioxide.
+- The red color is the result of iron oxide or rust.
+- Most metals form a protective layer on their surface called an oxide layer.
+- It was heated during the explosion and then turned to oxide.
+- The result, huge amount of iron oxide formed, or as we usually know it, rust.
+- This contains a compound called nitric oxide.
+- Combustion from cars, factories and fires spews out nitrogen oxides.
+- You injected me with aluminum oxide?
+- Tests show high levels of nitrous oxide in the family's bloodstream.
+- With every breath, we're inhaling oxygen and exhaling carbon dioxide.
+- The burning of fossil fuels create major carbon dioxide releases.
+- Carbon dioxide is a potent greenhouse gas.
+- Hydrogen is the lightest gas.
+- The balloon was filled with hydrogen.
+- It's giving out hydrogen gas.
+- These are heavy hydrogen atoms.
+- Hydrogen is a dangerous substance.
+- This device is used to produce hydrogen.
+- Heat from the Earth's core takes billions of years to escape to the surface.
+- Yes. The Earth has a dense inner core surrounded by a fluid outer core.
+- The core of the planet is the power source.
+- The huddle is so efficient, penguins in the inner core can even overheat.
+- That my wand and Potter's share the same core.
+- He argued that this is not the core of the problem.
+- The song is the emotional core of the show.
+- It's the core of your business --- information.
+- Building and sustaining peace sits at the very core of the United Nations being.
+- The core problem is that Amy and Wil do not like each other.
+- After you are done, summarise your arguments or repeat the core message.
+- We're also making improvements to many of our core technologies.
+- Hadera's core business is importing Ecstasy from Europe, which nets them around $3 million a month.
+- The core subjects are English, mathematics and Chinese.
+- Empowering women is a core value that binds us together.
+- Their core belief is that silence will fall when the question is asked.
+- My agenda will be based on a simple core principle: putting America First.
+- One of the core laws of physics states that light travels at 186,282 miles per second.
+- I will lead my core group of fighters north along Mill Highway.
+- And ... I'm a core member, so I'll start playing in competitions.
+- We have a core readership that thirsts for hard news.
+- And can you guess what we do with the apple cores?
+- I have only these three cores and these skins.
+- Make sure you eat the core as well.
+- A peach is soft inside and has a hard core in its centre.
+- The apple cores go into the compost for the worms.
+- But, uh, Kim needs her apple, peeled, cored, and sliced.
+- But there's been a hard core of regulars from the beginning.
+- She made your heart melt, but you're cold to the core.
+- I read a book that thrilled me to the core.
+- The bank was rotten to the core.
+- And fill all fruit with ripeness to the core.
+- Antarctica has a huge thick ice crust and underneath there is this liquid lake.
+
+
+
+
