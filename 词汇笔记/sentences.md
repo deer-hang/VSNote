@@ -50,79 +50,106 @@
 - Combustion from cars, factories and fires spews out nitrogen oxides.
 - You injected me with aluminum oxide?
 - Tests show high levels of nitrous oxide in the family's bloodstream.
+## carbon dioxide
+### phr. a gas breathed out by people and animals from the lungs or produced by burning carbon
 - With every breath, we're inhaling oxygen and exhaling carbon dioxide.
 - The burning of fossil fuels create major carbon dioxide releases.
 - Carbon dioxide is a potent greenhouse gas.
+## Hydrogen
+### n. a colourless gas that is the lightest and commonest element in the universe
 - Hydrogen is the lightest gas.
 - The balloon was filled with hydrogen.
 - It's giving out hydrogen gas.
 - These are heavy hydrogen atoms.
 - Hydrogen is a dangerous substance.
 - This device is used to produce hydrogen.
+## core
+### n. the central part of an object
 - Heat from the Earth's core takes billions of years to escape to the surface.
 - Yes. The Earth has a dense inner core surrounded by a fluid outer core.
 - The core of the planet is the power source.
 - The huddle is so efficient, penguins in the inner core can even overheat.
 - That my wand and Potter's share the same core.
+### n. the most important or central part of sth
 - He argued that this is not the core of the problem.
 - The song is the emotional core of the show.
 - It's the core of your business --- information.
 - Building and sustaining peace sits at the very core of the United Nations being.
+### adj. most important; main or essential
 - The core problem is that Amy and Wil do not like each other.
 - After you are done, summarise your arguments or repeat the core message.
 - We're also making improvements to many of our core technologies.
 - Hadera's core business is importing Ecstasy from Europe, which nets them around $3 million a month.
 - The core subjects are English, mathematics and Chinese.
+### adj. the most important or central beliefs, etc. of a person or group
 - Empowering women is a core value that binds us together.
 - Their core belief is that silence will fall when the question is asked.
 - My agenda will be based on a simple core principle: putting America First.
 - One of the core laws of physics states that light travels at 186,282 miles per second.
+### adj. used to describe the most important members of a group
 - I will lead my core group of fighters north along Mill Highway.
 - And ... I'm a core member, so I'll start playing in competitions.
 - We have a core readership that thirsts for hard news.
+### n. the hard central part of a fruit such as an apple, that contains the seeds
 - And can you guess what we do with the apple cores?
 - I have only these three cores and these skins.
 - Make sure you eat the core as well.
 - A peach is soft inside and has a hard core in its centre.
 - The apple cores go into the compost for the worms.
+### vt. to take out the core of a fruit
 - But, uh, Kim needs her apple, peeled, cored, and sliced.
+### n. a small group of people who take part in a particular activity
 - But there's been a hard core of regulars from the beginning.
+### so that the whole of a thing or a person is affected
 - She made your heart melt, but you're cold to the core.
 - I read a book that thrilled me to the core.
 - The bank was rotten to the core.
 - And fill all fruit with ripeness to the core.
+## crust
+### n. a hard layer of sth, expecially on top of a softer or wetter substance
 - Antarctica has a huge thick ice crust and underneath there is this liquid lake.
 - Numerius, you are filthy! - I fear he will form a crust if not sent to water.
+### n. the hard outer layer of the Earth
 - The magnitude of the earthquake reflects how much of the earth's crust ruptures.
 - Those earthquakes are typically very destructive, or as deep as 400 miles down into the crust.
 - The crust is not just the land above the oceans. It's the entire outer layer of the planet.
+### n. the hard outer layer of bread
 - Does she cut the crusts off your sandwich, too?
 - I always wondered what is would be like to have a mother who cut the crusts off my sandwiches.
 - He doesn't like crust on his sandwiches, and he likes to sleep with a little light on.
 - Slice the bread and cut off the crusts.
 - Please, Polliver. Some food. Just a crust of bread.
 - As bread ages, it develops the dry, crumbly texture and leathery crust that define staleness.
+### n. a layer of cooked pastry that forms the outer part of a pie or tart
 - The dish is delicious and tender with a crispy crust.
 - I'd rather melt cheese on cardboard than eat a pizza with a whole wheat crust.
 - Neapolitan pizza has a thin crust. The edge of the crust, when baked, grows larger.
 - That's because a cake and a pie crust cook at different temperatures.
 - Is...is it a pie? Yes, it's a pie with a Z in the crust.
 - Just bake them for fifteen minutes for a light texture and a cheesy crust.
+## mantle
+### n. the part of the earth below the crust and surrounding the core
 - The mantle is made of rock.
 - We've gone through the crust, through the mantle and through the outer core.
 - Early Earth's mantle was an ocean of molten rock, called magma.
+### n. the role and responsibilities of an important person or job, especially when they are passed on from one person to another
 - The company thought it would be best to pass the mantle on to Eva.
 - So he always took on the mantle of looking after everyone.
 - And now, because your friend murdered my father, I also wear the mantle of king.
+### n. a loose piece of clothing without sleeves, worn over other clothes, especially in the past
 - He saw the Witch take off her outer mantle.
 - Then put this mantle over all to hide the sword and the wallet. - That's right.
 - What a magnificent train there is to the mantle, and how gracefully the scarf hangs!
 - A long, drab-coloured coat she wore, a mantle, reaching to her feet.
 - Again I ran, and again returned, bearing an immense mantle lined and edged with fur.
+### vt. to cover the surface of sth
 - Like a king, like a god, full frontal, mantled in lustrous gold.
 - Come I too late? - Aye, if you come not in the blood of others, but mantled in your own.
+### n. a layer of sth that covers a surface
 - A thick mantle of snow lay on the ground.
 - The squares looked grim under a mantle of soot and ash.
+## longitude
+### n. the distance of a place to the west or east of a line passing through Greenwich
 - All he knows is his current latitude, longitude, and altitude.
 - The other thing you need on that map is longitude and latitude.
 - Hey, dad. What are you looking at? - Uh, coordinates. Longitude and latitude.
@@ -130,14 +157,19 @@
 - I need you to pick me up at 115 longitude, 35 degrees latitude directly under Orion's belt.
 - If Michael's correct, the time, date, and longitude mean he's somewhere here in Russia.
 - But Mau did not operate on latitude, longitude, angles, or mathematical calculations of any kind.
+## latitude
+### n. an area of the Earth's surface near a particular latitude
 - And so they head for the temperate seas of the higher latitudes.
 - At these latitudes, the sun's rays are weak and grass can only grow here for a few months a year.
 - North America will suffer more intense droughts, and crop diseases will spread to new latitudes.
 - But then the cold air that's normally locked up over the arctic gets displaced and it heads to lower latitudes.
 - At 40 degrees latitude, severe westerly winds known as the Roaring Forties blast the coastline.
+- So why are Japan and the extreme eastern edge of Asia the only densely forested areas on this latitude?
+### n. the distance north or south from the equator
 - He offered to divide Oregon at the forty-ninth parallel of latitude.
 - To navigate across the latitudes, they use the natural beacons of the universe: the sun, the stars.
 - Arcadia, Missouri...is at 40 degrees north latitude.
+### n. freedom to think or act in the way you want
 - Mr.President, I have given you a great deal of latitude to sort out your domestic situation.
 - But you would enjoy much greater latitude than normal law enforcement.
 - But we allow them enough latitude to do the job we brought them in to do.
@@ -145,53 +177,85 @@
 - That's why we have to act now under the radar while we still have some latitude.
 - It's based on a view of humanity where people are given the latitudes they need to be their very best.
 - Look, I allowed you latitude with the Hammonds before so you could pursue the bigger story.
+## horizon
+### n. the line in the far distance where the sky seems to meet the land or the sea
 - At 9:36 pm, the sun sank below the horizon.
 - She was swimming toward the horizon, toward the sun.
+- By late November in northern Iceland, the sun rises above the horizon for just five hours a day.
+- And looking for that magic rainbow on the horizon. I couldn't see it.
+- There was the hilly horizon.
+- Two dinghies appeared on the horizon.
+### n. the limits of what you want to do or of what you are interested or involved in
+- Well, I just want to try something new, expand my horizons.
+- Yes, they say travel broadens the mind -it certainly broadened my horizons too.
+- He continually broadens his horizons with daring decisions.
+- But really what it is, is to just broaden your horizons and to look at the world in a wider perspective.
+- You need to expand your horizons.
+- But early in my career, new horizons opened up for me.
+### almost certainly going to happen or be done quite soon
+- But there is hope on the horizon.
+- That storm on the horizon that I mentioned, I'm afraid it's arrived.
+- SO I want all the girls watching here and now to know that a new day is on the horizon!
+## altitude
+### n. the height of a place above sea level
 - Our flying altitude is 7000 feet.
 - Ladies and gentlemen, we've reached an altitude of 75 feet.
 - We're losing altitude. Drone's dropping fast.
 - A glider flight at high altitude is very difficult.
 - We are cruising at an altitude of 15,000 feet.
 - The missile flew for half an hour at high aititude before landing in the Sea of Japan.
+### n. a high location or area
 - At high altitudes, the monsoon rains fall as snow.
 - At altitude, finding them is even more of a challenge.
 - There's nothing to eat at lower altitudes.
 - Descending from the hilltops to lower altitudes, the argali band together for safety.
 - People in Ethiopian highlands have adapted to living at high altitudes.
+## disaster
+### n. a very bad accident that causes great damage or death
 - But are these natural disasters simply bad weather? 
 - This was Cuba's worst air disaster in decades.
 - He says robots also help people in natural disasters.
 - Many people are wondering if China is heading towards an environmental disaster.
 - More than 1,000 people are now known to have died in the disaster.
 - He noted Malaysia's lack of experience with air disasters.
+### n. a very bad situation that causes a lot of problems
 - Chain migration is a disaster and very unfair to our country.
 - Ms.Groves, our only lead brought us to the brink of disaster.
 - Russian financial officials say that with some effort, an economic disaster can be avoided.
 - Her life has been nothing but disaster upon disaster but her courage never fails.
 - He says a breakup would be an economic disaster.
 - Having mu wife and ex-girlfriend in the same room will be a recipe for disaster!
+### n. used to emphasize that sb/sth is extremely bad
 - My first year in town was a disaster.
 - My life is a disaster, Teddy. And it's all your fault.
 - Well, that party was a disaster, but at least Ben seems to be having fun.
 - She's a disaster. She's got no boundaries.
 - It was my first lesson in Glee Club today, and it was a total disaster.
+## mishap
+### n. a small accident or piece of bad luck that does not have serious results
 - Why did Lloyd drop you off? - I had a little mishap with the Ferrari.
 - There were no mishaps, nobody got lost.
 - I mean, there must be hundreds of civilian deaths in similar drone mishaps.
 - We are not throwing in the towel over a minor mishap.
 - First, a bunch of technical mishaps delayed the caucus results.
 - Her next mishap was to be tumbled out of a barge on the river Volga.
+## catastrophic
+### adj. causing widespread damage or death; completely unsuccessful or very bad
 - That mission resulted in a catastrophic attack.
 - I'm experiencing catastrophic engine failure, punching out.
 - And the threat now is from flooding, potentially catastrophic flooding.
 - Now that's a serious piece of machinery...that could be catastrophic in the wrong hands.
 - Catastrophic describes something involving great damage or suffering.
 - These threats could have catastrophic consequences for human survival in the 21st century.
+## calamity
+### n. an event that causes great damage to people's lives, property, etc
 - You surely have turned calamity to victory.
 - This was a calamity too deep for tears.
 - President Aquino of the Philippines has declared a state of national calamity.
 - Thornfield Hall is quite a ruin. It was burnt down just about harvest-time. A dreadful calamity!
 - But calamity has not dimmed this remarkable woman's spirit.
+## endanger
+### vt. to put sb/sth in a situation where they might be harmed or destroyed completely
 - You will endanger your health if you smoke too much.
 - How can you say that? You endangered the life of our baby today.
 - And they'll say I endangered national security.
@@ -199,6 +263,8 @@
 - We may genuinely have good intentions, but we are endangering everyone by not speaking more frankly.
 - We often hear about how human activity and expansion can endanger wildlife habitats.
 - Red-crowned cranes are one of the world's most endangered species.
+## jeopardise
+### vt. to jeopardise a situation or activity means to do sth that may destroy it or cause it to fail.
 - And if you jeopardise it, I'll see you on court-martial.
 - Do not continue to jeopardize her future.
 - Don't jeopardize your health. You understand?
@@ -209,6 +275,8 @@
 - He does not believe the Egyptian military wants to jeopardize relations with Washington.
 - The lives of thousands of animals and plants are jeopardized by environmental pollution.
 - You jeopardized the entire mission to avoid shooting a beautiful girl.
+## destructive
+### adj. causing or capable of causing great damage, harm, or injury
 - They were building an extremely destructive atomic bomb.
 - Such a war would be unbelievably destructive.
 - You said these weapons have great destructive power?
@@ -216,19 +284,63 @@
 - Large and destructive tornadoes have hit the American states of Illinois, Indiana and Kentucky.
 - Ambassador Stevens said efforts in his country have not stopped Ebola's destructive path.
 - Curiosity pieces together the events that created one of the most destructive storms in U.S. history.
+## El Nino
+### phr. a change in the currents of the Pacific Ocean off the South American coast that can seriously affect the weather in the region, often causing major problems such as floods
 - El Ninos are weather patterns that warm the Pacific Ocean.
 - Thanks to El Nino, California's coastal waters have become more hospitable to fish from the tropics.
+## greenhouse
+### n. a glass building in which you grow plants that need to be protected from bad weather
 - In my greenhouse right now, I grow all sorts of herbs, tomatoes, peppers.
 - Grandpa? Why is your greenhouse made of glass if glass breaks easily?
 - Four giant plastic greenhouses sheltered crops of peppers and tomatoes.
+### adj. relating to or causing the greenhouse effect
 - This so-called greenhouse effect warms the Earth.
 - Greenhouse gases were the highest on record.
 - Carbon dioxide is a potent greenhouse gas.
 - Without greenhouse gases, the Earth's surface would be up to 86℉ cooler.
 - As a result of the greenhouse effect, the Earth's temperature is increasing.
 - Maybe this could help us reduce greenhouse gas emissions, after all.
+## phenomenon
+### n. something that can be observed and studied and that typically is unusual or difficult to understand
+- Climate change is a global phenomenon.
+- Researchers studied that phenomenon in mice.
+- There is a natural phenomenon that scientists call the "greenhouse effect".
+- Snow is Egypt is an almost unknown phenomenon of nature.
+- There are so many physical phenomena that are just better recorded visually.
+- One of the strangest phenomena of life is to engage in a work that will last long after death.
+- Anchors having an opinion isn't a new phenomenon.
+### n. a person or thing that is very impressive or successful especially because of an unusual ability or quality
+- Harry Potter, the biggest movie phenomenon of all time.
+- Gangnam Style is another great example of how that just look over and became huge worldwide world pop phenomenon.
+- Philip is a phenomenon in math. He always gets 100% on tests.
+## pebble
+### n. a smooth, round stone that is found in or near water
 - Suddenly, Mr Duncan saw the red pebble.
 - It's rather like throwing a pebble into a pool.
+- And every pebble that you see on the ground there is a piece of dinosaur bone.
+- One of his hobbies was collecting pebbles of unusual shape and colour.
+- I was just, like, hanging around outside, and I was, I was throwing pebbles at her window.
+## magnets
+### n. a piece of iron or other material which attracts iron towards it
+- Radio waves transmit sound through the magnets.
+- When similarly charged ends of two magnets get close together, they repel or push away from each other.
+- Gravity is not a force pulling us towards the centre of the Earth like a giant magnet
+- Monica: Well, the end table is wrong, um the couch looks bizarre and don't even get me started on the refrigerator magnets.
+### n. something or sb that attracts people or things
+- America has always been the greatest immigration magnet of all.
+- Tropical islands are an obvious magnet for life.
+- In late spring, the chilly lake waters are a magnet for breeding birds.
+- These days, Budapest's Great Market Hall is a magnet for fans of traditional cuisine.
+- It proved a magnet for Victorian adventurers.
+## ore
+### n. rock or earth from which metal can be obtained
+- Miners found ore and gold in mountains.
+- They were mining for iron ore.
+- MMX digs plenty of iron ore out of the ground, but not at a profit.
+- Japan wanted control of Manchuria. It needed that area's coal and iron ore.
+- And it was accelerated by the smoke from the burning ore.
+- Recycling metals is much cheaper than extracting them from the ore.
+
 
 
 
