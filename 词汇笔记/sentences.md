@@ -133,6 +133,90 @@
 - Look, I allowed you latitude with the Hammonds before so you could pursue the bigger story.
 - At 9:36 pm, the sun sank below the horizon.
 - She was swimming toward the horizon, toward the sun.
+- Our flying altitude is 7000 feet.
+- Ladies and gentlemen, we've reached an altitude of 75 feet.
+- We're losing altitude. Drone's dropping fast.
+- A glider flight at high altitude is very difficult.
+- We are cruising at an altitude of 15,000 feet.
+- The missile flew for half an hour at high aititude before landing in the Sea of Japan.
+- At high altitudes, the monsoon rains fall as snow.
+- At altitude, finding them is even more of a challenge.
+- There's nothing to eat at lower altitudes.
+- Descending from the hilltops to lower altitudes, the argali band together for safety.
+- People in Ethiopian highlands have adapted to living at high altitudes.
+- But are these natural disasters simply bad weather? 
+- This was Cuba's worst air disaster in decades.
+- He says robots also help people in natural disasters.
+- Many people are wondering if China is heading towards an environmental disaster.
+- More than 1,000 people are now known to have died in the disaster.
+- He noted Malaysia's lack of experience with air disasters.
+- Chain migration is a disaster and very unfair to our country.
+- Ms.Groves, our only lead brought us to the brink of disaster.
+- Russian financial officials say that with some effort, an economic disaster can be avoided.
+- Her life has been nothing but disaster upon disaster but her courage never fails.
+- He says a breakup would be an economic disaster.
+- Having mu wife and ex-girlfriend in the same room will be a recipe for disaster!
+- My first year in town was a disaster.
+- My life is a disaster, Teddy. And it's all your fault.
+- Well, that party was a disaster, but at least Ben seems to be having fun.
+- She's a disaster. She's got no boundaries.
+- It was my first lesson in Glee Club today, and it was a total disaster.
+- Why did Lloyd drop you off? - I had a little mishap with the Ferrari.
+- There were no mishaps, nobody got lost.
+- I mean, there must be hundreds of civilian deaths in similar drone mishaps.
+- We are not throwing in the towel over a minor mishap.
+- First, a bunch of technical mishaps delayed the caucus results.
+- Her next mishap was to be tumbled out of a barge on the river Volga.
+- That mission resulted in a catastrophic attack.
+- I'm experiencing catastrophic engine failure, punching out.
+- And the threat now is from flooding, potentially catastrophic flooding.
+- Now that's a serious piece of machinery...that could be catastrophic in the wrong hands.
+- Catastrophic describes something involving great damage or suffering.
+- These threats could have catastrophic consequences for human survival in the 21st century.
+- You surely have turned calamity to victory.
+- This was a calamity too deep for tears.
+- President Aquino of the Philippines has declared a state of national calamity.
+- Thornfield Hall is quite a ruin. It was burnt down just about harvest-time. A dreadful calamity!
+- But calamity has not dimmed this remarkable woman's spirit.
+- You will endanger your health if you smoke too much.
+- How can you say that? You endangered the life of our baby today.
+- And they'll say I endangered national security.
+- Do you realize you have endangered everything that we have been working toward?
+- We may genuinely have good intentions, but we are endangering everyone by not speaking more frankly.
+- We often hear about how human activity and expansion can endanger wildlife habitats.
+- Red-crowned cranes are one of the world's most endangered species.
+- And if you jeopardise it, I'll see you on court-martial.
+- Do not continue to jeopardize her future.
+- Don't jeopardize your health. You understand?
+- The Feds say that Apple's defiance jeopardises the safety of Americans.
+- I'm not going to do anything to jeopardize your career.
+- The official line is that they do not want to jeopardise ongoing inquiries.
+- You think I would betray my own people, jeopardize the life of my son?
+- He does not believe the Egyptian military wants to jeopardize relations with Washington.
+- The lives of thousands of animals and plants are jeopardized by environmental pollution.
+- You jeopardized the entire mission to avoid shooting a beautiful girl.
+- They were building an extremely destructive atomic bomb.
+- Such a war would be unbelievably destructive.
+- You said these weapons have great destructive power?
+- Yet these destructive forces may have also brought life to some islands.
+- Large and destructive tornadoes have hit the American states of Illinois, Indiana and Kentucky.
+- Ambassador Stevens said efforts in his country have not stopped Ebola's destructive path.
+- Curiosity pieces together the events that created one of the most destructive storms in U.S. history.
+- El Ninos are weather patterns that warm the Pacific Ocean.
+- Thanks to El Nino, California's coastal waters have become more hospitable to fish from the tropics.
+- In my greenhouse right now, I grow all sorts of herbs, tomatoes, peppers.
+- Grandpa? Why is your greenhouse made of glass if glass breaks easily?
+- Four giant plastic greenhouses sheltered crops of peppers and tomatoes.
+- This so-called greenhouse effect warms the Earth.
+- Greenhouse gases were the highest on record.
+- Carbon dioxide is a potent greenhouse gas.
+- Without greenhouse gases, the Earth's surface would be up to 86℉ cooler.
+- As a result of the greenhouse effect, the Earth's temperature is increasing.
+- Maybe this could help us reduce greenhouse gas emissions, after all.
+- 
+
+
+
 
 
 
