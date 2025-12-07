@@ -1,24 +1,36 @@
+## atmosphere
+### n. the mood or feeling of a place or situation
 - Now music is also used to create atmosphere in films.
 - So they put on music with a slow tempo ti create a more relaxed atmosphere.
 - The atmosphere inside number four, Privet Drive was extremely tense.
 - I spent a month at Moor House, in an atmosphere of warm friendship.
 - What I do to is manage to create an atmosphere of support for the people working with me.
+### n. the layer of air or other gases around the earth
 - The Earth's atmosphere began to change.
 - They say it pollutes groundwater and sends harmful gases into the atmosphere.
 - And more and more of that global warming pollution is being dumped in the atmosphere each year.
 - The heat from the upper atmosphere would've ignited fires everywhere that fuel was available.
+### n. the air that you breathe in a place
 - Yes, but the atmosphere is dangerously thin.
 - They shouldn't work in smoky atmospheres.
 - Engines are offline! We're venting atmosphere!
+### n. if a place or an event has atmosphere, it is interesting
 - I thought that was the best atmosphere of the season.
 - I mean, it's still full of atmosphere and my gosh, it would've been like that in the '40s and '50s.
+### n. the layer of air or other gases around a planet or a star
 - The moon has no atmosphere, no free oxygen, and no surface moisture.
 - Mars, not a warm place. It does not have much atmosphere. It can't hold water.
 - Mercury doesn't have an atmophere so the sky would be black.
 - This is the sun's atmosphere colliding with the Earth's atmosphere.
+## hydrosphere
+### n. all of the water on or over the earth's surface
 - Hydro means water, so the hydrosphere is made of all the water on earth.
 - Earth's physical systems include the atmosphere, hydrosphere, lithosphere, and biosphere.
+## lithosphere
+### n. the layer of rock that forms the outer part of the earth
 - And with more oxygen, the crust would be heavier, making the lithosphere heavier than our atmosphere.
+## oxygen
+### n. a colourless gas that exists in large quantities in the air and is necessary for all creatures to live
 - Without oxygen, we quickly die.
 - Take a deep breath of oxygen.
 - So the brain isn't getting enough oxygen.
@@ -28,6 +40,8 @@
 - Like all mammals, they need to breathe oxygen.
 - Currently, oxygen is about 21 percent of the atmosphere.
 - This means that they take in oxygen and release carbon dioxide.
+## oxide
+### n. a compound combining oxygen and another chemical element
 - The red color is the result of iron oxide or rust.
 - Most metals form a protective layer on their surface called an oxide layer.
 - It was heated during the explosion and then turned to oxide.
@@ -213,7 +227,9 @@
 - Without greenhouse gases, the Earth's surface would be up to 86℉ cooler.
 - As a result of the greenhouse effect, the Earth's temperature is increasing.
 - Maybe this could help us reduce greenhouse gas emissions, after all.
-- 
+- Suddenly, Mr Duncan saw the red pebble.
+- It's rather like throwing a pebble into a pool.
+
 
 
 
