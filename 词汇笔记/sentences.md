@@ -320,7 +320,7 @@
 - And every pebble that you see on the ground there is a piece of dinosaur bone.
 - One of his hobbies was collecting pebbles of unusual shape and colour.
 - I was just, like, hanging around outside, and I was, I was throwing pebbles at her window.
-## magnets
+## magnet
 ### n. a piece of iron or other material which attracts iron towards it
 - Radio waves transmit sound through the magnets.
 - When similarly charged ends of two magnets get close together, they repel or push away from each other.
@@ -340,8 +340,125 @@
 - Japan wanted control of Manchuria. It needed that area's coal and iron ore.
 - And it was accelerated by the smoke from the burning ore.
 - Recycling metals is much cheaper than extracting them from the ore.
-
-
+## marble
+### n. a type of hard smooth rock, usually used for building and making statues
+- He hit his head on the marble floor.
+- Three years later, that block of marble was the statue of David.
+- Harry saw a familiar, snow-white marble building in the distance -- Gringotts Bank.
+- The Maharaja of Baroda, for example, paid $15,500 for a solid marble statue.
+- All around are the white marble monuments of Mussolini's urban fantasy.
+### n. a small ball made of coloured glass, usually used in children's games
+- I have seven marbles, and Jina has five.
+- Her eyes looked like marbles.
+- Imagine if you were asked to count the number of marbles in this jar.
+- So I take the marble, put it in the ...put it in the eye right there.
+### n. a game that is played with marbles
+- I'm still the same William you played marbles with in this room.
+- Everywhere groups of boys were gathered together. Some played at marbles, at hopscotch, at ball.
+### to become insane and mad
+- That woman was really losing her marbles toward the end.
+- And five years ago, your great-great Maw Maw hadn't lost her marbles yet either.
+- He's lost his marbles, Ron muttered in Harry's ear.
+- What's goin' on down there? Is his mom losing her marbles?
+## quartz
+### n. a hard shiny crystal, often used in making electronic equipment, watches and clocks
+- Quartz is a hard, colorless mineral.
+- Most people know that wrist watches commonly contain quartz.
+- THis building was built on an old quartz mine.
+- Shocked quartz is a form of quartz that has a very different structure.
+- The lenses are made of some ruby quartz I had lying around.
+- It's just a type of quartz, and quartz is the most common mineral in the Earth's crust.
+- In fact, if you wear a watch, chances are it's a quartz watch, since most watches made tody use quartz.
+- The quartz used in watches is actually synthetic because it vibrates more steadily than natural quartz.
+- Of cource, you probably noticed that glass isn't made of multiple tiny bits of quartz, and for good reason.
+- Here's how a quartz watch works.
+## granite
+### n. a very hard rock used in building
+- At one end of the valley stood El Capitan, over 3,000 feet of sheer granite.
+- I thought you said these tunnels were granite.
+- The 1800-meter-high granite peaks of the Huangshan or yellow mountain.
+- THis railway line once carried granite from a quarry to the harbour.
+- Granite is made when hot, liquid rock cools and hardens under the Earth's surface.
+- That big shift to a worldwide supply of granite made it more accessible.
+## mineral
+### n. a substance suce as tin, salt, or sulphur that is formed naturally in rocks and in the earth
+- The area is thought to be rich in gold and other minerals.
+- Spacecraft orbiting Mars have shown what appear to be rivers, lakebeds and mineral deposits.
+- The 227-meter ship will be able to extract mineral deposits from depths of up to 2500 meters below the sea.
+- As they hit the cold seawater, the minerals turn black.
+- Mining companies say, the mineral resources could be worth billions of dollars.
+- And just one sandwich contains all the vitamins and minerals a bear needs for the whole day.
+- Grass, fast growing and rich in minerals, transformed the South American landscape forever.
+- You need to let me go or bring me a mineral water.
+## gust
+### n. a sudden strong increase in the amount and speed of wind that is blowing
+- A gust of wind blew my hat away.
+- Strong gusts of wind broke windows and removed tops of buildings.
+- Although the sun is still shining, the first gusts of wind are making their work difficult.
+- Swans and geese today sometimes lift their wings, to catch gusts of air.
+- Yang compares the process to what happens when a powerful gust of wind blow a tree down.
+### n. a sudden strong expression of emotion
+- A great gust of laughter went up from behind him, but he did not look back. He hoped they all choked on their sucking pigs.
+### vi. to suddenly blow very hard
+- Winds gust to 90 miles an hour.
+- You know which way the wind blows and right now it is gusting towards us.
+## breeze
+### n. a gentle wind
+- Did someone just feel a cold breeze?
+- The sun was hot now although the breeze was rising gently.
+- We bring you a tree which today moved lightly in the breeze.
+- Wanna feel the warm breeze. Sleep under a palm tree. Feel the rush of the ocean.
+- In the leaves on the trees and the touch of the breeze, there's a pleasing sense of happiness for me.
+- This seat is ideally located both in relation to the heat source in the winter and a cross breeze in the summer.
+- It had to be a sea breeze, life-giving and charged with iodine!
+### n. a thing that is very easy to do or to achieve
+- This contest is a breeze!
+- Writing the cards from there was a breeze.
+- THe fake ID is a breeze.
+- I thought living with you, Grayson, would be a breeze, but I was wrong.
+- One? A breeze. Two? Brutal. Three? Put a bullet in my head.
+### vi. to move in a calm and confident way in a particular direction
+- You just breezed right in and you had one word for us too.
+- There's no way you can breeze in here and take over someone else's investigation.
+### if you breeze through sth such as a game or test, you cope with it easily
+- I'm sure you'll breeze through it.
+- Ah, you'll breeze through the follow-up inspection.
+- He's gonna let you breeze right through, then I'll see you in the morning!
+## monsoon
+### n. the season in Southern Asia when there is a lot of very heavy rain
+- At high altitudes, the monsoon rains fall as snow.
+- Buy a slicker. It's monsoon season.
+- Monsoon rains have left more than 80% of the park in Assam state underwater.
+- Thanks to the annual monsoon, the whole landscape is covered in lush forest.
+### n. a wind in S Asia that blows from the south-west in summer, bringing rain, and the north-east in winter
+- As I said the moonsoon migrated itself, so there was less rain in the Sahara.
+- A few hours before the monsoon closed in, Leo and I summitted Mount Everest.
+## gale
+### n. an extremely strong wind
+- Many trees were blown down in the gale.
+- A gale is a very strong wind, which can be dangerous.
+- Seems to be blowing up a bit of a gale out there.
+- Severe gale-force 11 winds are expected with heavy rain.
+- When the wind's blowing at gale force, there's no point in sailing against it.
+### the sound of people laughing very loudly
+- A gale of laughter from the middle of the table drowned the rest of Bill's words.
+## hurricane
+### an extremely violent wind or storm
+- Why did the hurricane destroy our town?
+- Hurricanes, as we know them, need water in order to form.
+- The Hurricane could hit the eastern US coast sometime on Monday or Tuesday.
+- Is there is a hurricane you always see the signs of it in the sky for days ahead, if you are at sea.
+- Hurricane Carmen came through here yesterday, destroying nearly everything in its path.
+- I can't help thinking what it must all look like just after a hurricane has struck.
+- Hurricane Matthew is expected to cause flooding and landslides, when it makes landfall in the next few hours.
+- A gentle wind can cool a summer ay, but a strong wind can become a powerful hurricane of terrifying force.
+- Hurricane Katrina was huge - it broke the levees and flooded the city.
+## tornado
+### n. a violent storm with very strong winds which move in a circle
+- A tornado outside Wichita killed 2 and injured 9 last night.
+- A tornado just hit Mount Pleasant, and they think we could get one, too.
+- And my only hope was that a giant tornado would destroy the school before the big event.
+- I'm gonna build out the tornado shelter in my backyard.
 
 
 
