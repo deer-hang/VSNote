@@ -431,7 +431,7 @@
 - Monsoon rains have left more than 80% of the park in Assam state underwater.
 - Thanks to the annual monsoon, the whole landscape is covered in lush forest.
 ### n. a wind in S Asia that blows from the south-west in summer, bringing rain, and the north-east in winter
-- As I said the moonsoon migrated itself, so there was less rain in the Sahara.
+- As I said the monsoon migrated itself, so there was less rain in the Sahara.
 - A few hours before the monsoon closed in, Leo and I summitted Mount Everest.
 ## gale
 ### n. an extremely strong wind
@@ -459,6 +459,35 @@
 - A tornado just hit Mount Pleasant, and they think we could get one, too.
 - And my only hope was that a giant tornado would destroy the school before the big event.
 - I'm gonna build out the tornado shelter in my backyard.
+
+
+
+
+
+
+## typhoon
+### n. a very violent tropical storm
+- It's called a super typhoon because it's especially powerful.
+- Typhoon Haiyan caused major damage over a wide area and destroyed homes.
+- Some of these remarkable buildings are 800 years old and have survived 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
