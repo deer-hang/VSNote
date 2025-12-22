@@ -1,4 +1,4 @@
-Prologue
+## Prologue
 I must have died, the woman thought.
 
 She was [[drifting]] high above the spires of the old city. Beneath her, the illuminated towers of St. Vitus Cathedral glowed on a sea of twinkling lights. With her eyes, if she still had eyes, she traced the gentle slope of Castle Hill down into the heart of the Bohemian capital, following the labyrinth of winding streets that lay shrouded in a fresh blanket of snow.
@@ -21,29 +21,29 @@ Even as the notion materialized, she rejected it as absurd.
 
 The afterlife is a shared delusion…created to make our actual life bearable.
 
-As a physician, Gessner was intimately familiar with death, and also with its finality. In medical school, while dissecting human brains, Gessner came to understand that all those personal attributes that made us who we are—our hopes, fears, dreams, memories—were nothing but chemical compounds held in suspension by electrical charges in our brains. When a person died, the brain’s power source was severed, and all of those chemicals simply dissolved into a meaningless puddle of liquid, erasing every last trace of who that person had once been.
+As a physician, Gessner was [[intimately familiar]] with death, and also with its finality. In medical school, while dissecting human brains, Gessner came to understand that all those personal attributes that made us who we are—our hopes, fears, dreams, memories—were nothing but [[chemical compounds]] held in [[suspension]] by [[electrical charges]] in our brains. When a person died, the brain’s power source was [[severed]], and all of those chemicals simply [[dissolved]] into a meaningless [[puddle]] of liquid, erasing every last trace of who that person had once been.
 
 When you die, you die.
 
 Full stop.
 
-Now, however, as she drifted over the symmetrical gardens of Wallenstein Palace, she felt very much alive. She watched the snow falling around her—or through her?—and oddly, she sensed no cold at all. It was as if her mind were simply hovering in space, with all reason and logic intact.
+Now, however, as she drifted over the [[symmetrical]] gardens of Wallenstein Palace, she felt very much alive. She watched the snow falling around her—or through her?—and oddly, she sensed no cold at all. It was as if her mind were simply hovering in space, with all [[reason]] and logic intact.
 
 I have brain function, she told herself. So I must be alive.
 
-All Gessner could conclude was that she was now in the throes of what medical literature termed an OBE—out-of-body experience—a hallucination that occurred when critically injured patients were resuscitated after clinically dying.
+All Gessner could conclude was that she was now in the [[throes]] of what medical literature termed an OBE—out-of-body experience—a [[hallucination]] that occurred when critically injured patients were [[resuscitated]] after [[clinically dying]].
 
-OBEs almost always presented in the same manner—the perception that one’s mind had been temporarily separated from its physical body, floating upward and hovering without form. Despite feeling like real experiences, OBEs were nothing but imagined journeys, usually triggered by the effects of extreme stress and hypoxia on the brain, sometimes in conjunction with emergency room anesthetics like ketamine.
+OBEs almost always presented in the same manner—the perception that one’s mind had been temporarily separated from its physical body, floating upward and hovering without form. [[Despite]] feeling like real experiences, OBEs were nothing but imagined journeys, usually triggered by the effects of extreme stress and hypoxia on the brain, sometimes [[in conjunction with]] [[emergency]] room [[anesthetics]] like ketamine.
 
-I am hallucinating these images, Gessner assured herself, gazing down at the dark curve of the Vltava River snaking through the city. But if this is an OBE…then I must be in the process of dying.
+I am hallucinating these images, Gessner assured herself, [[gazing down]] at the dark curve of the Vltava River snaking through the city. But if this is an OBE…then I must be in the process of dying.
 
 Surprised by her own calm, Gessner tried to remember what had happened to her.
 
 I am a healthy forty-nine-year-old woman…Why would I be dying?
 
-In a blinding flash, a frightening memory materialized in Gessner’s consciousness. She now realized where her physical body was lying at this very instant…and, even more terrifying, what was being done to her.
+In a [[blinding flash]], a frightening memory materialized in Gessner’s consciousness. She now realized where her physical body was lying [[at this very instant]]…and, even more terrifying, what was being done to her.
 
-She was on her back, tightly strapped into a machine she herself had created. A monster stood over her. The creature looked like some kind of primordial man who had crawled out of the earth. His face and hairless skull were coated with a thick layer of filthy clay, cracked and fractured like the surface of the moon. Only his hate-filled eyes were visible behind his earthen mask. Crudely etched across his forehead were three letters in an ancient language.
+She was on her back, [[tightly strapped]] into a machine she herself had created. A monster [[stood over]] her. The [[creature]] looked like some kind of [[primordial man]] who had [[crawled]] out of the earth. His face and [[hairless skull]] were [[coated]] with a [[thick]] layer of [[filthy clay]], [[cracked]] and [[fractured]] like the surface of the moon. Only his [[hate-filled]] eyes were [[visible]] behind his [[earthen]] mask. [[Crudely]] [[etched]] across his forehead were three letters in an ancient language.
 
 “Why are you doing this?!” Gessner had screamed in panic. “Who are you?!” What are you?!
 
