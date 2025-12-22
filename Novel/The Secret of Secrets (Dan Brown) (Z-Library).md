@@ -45,9 +45,9 @@ In a [[blinding flash]], a frightening memory materialized in Gessner’s consci
 
 She was on her back, [[tightly strapped]] into a machine she herself had created. A monster [[stood over]] her. The [[creature]] looked like some kind of [[primordial man]] who had [[crawled]] out of the earth. His face and [[hairless skull]] were [[coated]] with a [[thick]] layer of [[filthy clay]], [[cracked]] and [[fractured]] like the surface of the moon. Only his [[hate-filled]] eyes were [[visible]] behind his [[earthen]] mask. [[Crudely]] [[etched]] across his forehead were three letters in an ancient language.
 
-“Why are you doing this?!” Gessner had screamed in panic. “Who are you?!” What are you?!
+“Why are you doing this?!” Gessner had [[screamed in panic]]. “Who are you?!” What are you?!
 
-“I am her protector,” the monster replied. His voice was hollow, his accent vaguely Slavic. “She trusted you…and you betrayed her.”
+“I am her [[protector]],” the monster replied. His voice was hollow, his accent vaguely Slavic. “She trusted you…and you betrayed her.”
 
 “Who?!” Gessner demanded.
 
