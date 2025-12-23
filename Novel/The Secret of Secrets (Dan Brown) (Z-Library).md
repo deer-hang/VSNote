@@ -47,31 +47,31 @@ She was on her back, [[tightly strapped]] into a machine she herself had created
 
 “Why are you doing this?!” Gessner had [[screamed in panic]]. “Who are you?!” What are you?!
 
-“I am her [[protector]],” the monster replied. His voice was hollow, his accent vaguely Slavic. “She trusted you…and you betrayed her.”
+“I am her [[protector]],” the monster replied. His voice was [[hollow]], his accent [[vaguely Slavic]]. “She trusted you…and you [[betrayed]] her.”
 
 “Who?!” Gessner demanded.
 
-The monster spoke a woman’s name, and Gessner felt a stab of panic. How can he possibly know what I have done?!
+The monster spoke a woman’s name, and Gessner [[felt a stab of panic]]. How can he possibly know what I have done?!
 
-An icy weight materialized in her arms, and Gessner realized the monster had started the process. An instant later, an unbearable pinpoint of pain blossomed in her left arm, spreading along her median cubital vein, clawing its way sharply toward her shoulder. “Please, stop,” she gasped.
+An icy weight materialized in her arms, and Gessner realized the monster had started the process. [[An instant later]], an [[unbearable]] [[pinpoint]] of pain [[blossomed]] in her left arm, [[spreading]] along her [[median cubital vein]], [[clawing]] its way [[sharply]] toward her [[shoulder]]. “Please, stop,” she [[gasped]].
 
-“Tell me everything,” he demanded as the excruciating sensation reached her armpit.
+“Tell me everything,” he demanded as the [[excruciating]] [[sensation]] reached her armpit.
 
-“I will!” Gessner frantically agreed, and the monster paused the machine, halting the pain at her shoulder, though the intense burning remained.
+“I will!” Gessner [[frantically]] agreed, and the monster paused the machine, halting the pain at her shoulder, though the [[intense]] burning [[remained]].
 
-Racked with terror, Gessner spoke as quickly as she could through clenched teeth, frantically revealing the secrets she had vowed to keep. She answered his questions, divulging the disturbing truth about what she and her partners had created deep beneath the city of Prague.
+[[Racked with terror]], Gessner spoke as quickly as she could through [[clenched]] teeth, frantically [[revealing]] the secrets she had [[vowed]] to keep. She answered his questions, [[divulging]] [[the disturbing truth]] about what she and her partners had created deep beneath the city of Prague.
 
-The monster stared down at her from behind his thick clay mask, his cold eyes flashing with comprehension…and hatred.
+The monster stared down at her from behind his thick clay mask, his cold eyes flashing with [[comprehension]]…and [[hatred]].
 
-“You’ve built an underground house of horrors,” he whispered. “You all deserve to die.” Without hesitation, he turned the machine back on and headed for the door.
+“You’ve built an underground house of [[horrors]],” he whispered. “You all deserve to die.” Without [[hesitation]], he turned the machine back on and [[headed for the door]].
 
-“No…!” she shrieked as the agony seized her anew, surging through her shoulder and into her chest. “Please don’t leave…This will kill me!”
+“No…!” she [[shrieked]] as the [[agony]] [[seized]] her [[anew]], [[surging]] through her shoulder and into her chest. “Please don’t leave…This will kill me!”
 
-“Yes,” he said over his shoulder. “But death is not the end. I have died many times.”
+“Yes,” he said [[over his shoulder]]. “But death is not the end. I have died many times.”
 
-With that, the monster evaporated, and Gessner was suddenly hovering again. She tried to shout an appeal for mercy, but her voice was muted by a deafening thunderclap as the sky above her seemed to open wide. She felt herself gripped by an unseen force—a kind of reverse gravity—lifting her higher, dragging her upward.
+With that, the monster [[evaporated]], and Gessner was suddenly [[hovering]] again. She tried to [[shout]] an [[appeal]] for mercy, but her voice was [[muted]] by a [[deafening]] [[thunderclap]] as the sky [[above]] her seemed to open wide. She felt herself [[gripped]] by an unseen [[force]]—a kind of [[reverse]] [[gravity]]—[[lifting]] her higher, [[dragging]] her upward.
 
-For years, Dr. Brigita Gessner had derided her patients’ claims of returning from the brink of death. Now she found herself praying that she could join the ranks of those rare souls who had danced to the edge of oblivion, peered into the abyss, and somehow stepped back from the precipice.
+For years, Dr. Brigita Gessner had [[derided]] her patients’ [[claims]] of returning from the [[brink]] of death. Now she found herself praying that she could join the ranks of those rare souls who had danced to the edge of oblivion, peered into the abyss, and somehow stepped back from the precipice.
 
 I can’t die…I have to warn the others!
 
