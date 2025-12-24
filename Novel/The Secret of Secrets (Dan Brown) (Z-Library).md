@@ -1,27 +1,27 @@
 ## Prologue
 I must have died, the woman thought.
 
-She was [[drifting]] high above the spires of the old city. Beneath her, the illuminated towers of St. Vitus Cathedral glowed on a sea of twinkling lights. With her eyes, if she still had eyes, she traced the gentle slope of Castle Hill down into the heart of the Bohemian capital, following the labyrinth of winding streets that lay shrouded in a fresh blanket of snow.
+She was [[drifting]] high above the [[spires]] of the old city. Beneath her, the illuminated towers of St. Vitus Cathedral [[glowed]] on a sea of [[twinkling]] [[lights]]. With her eyes, if she still had eyes, she [[traced]] the [[gentle]] [[slope]] of Castle Hill down into the heart of the Bohemian capital, following the [[labyrinth]] of [[winding]] streets that lay [[shrouded]] in a [[fresh]] blanket of snow.
 
 Prague.
 
-Disoriented, she strained to make sense of her predicament.
+[[Disoriented]], she [[strained]] to make sense of her [[predicament]].
 
-I am a neuroscientist, she reassured herself. I am of sound mind.
+I am a [[neuroscientist]], she [[reassured]] herself. I am of [[sound]] mind.
 
-That second statement, she decided, was questionable.
+That second [[statement]], she decided, was questionable.
 
-The only thing Dr. Brigita Gessner knew for certain at the moment was that she was suspended over her home city of Prague. Her body was not with her. She was without mass and without form. And yet the rest of her, the real her—her essence, her [[consciousness]]—seemed to be quite intact and alert, floating slowly through the air in the direction of the Vltava River.
+The only thing Dr. Brigita Gessner knew for certain at the moment was that she was [[suspended]] over her home city of Prague. Her body was not with her. She was without [[mass]] and without [[form]]. And yet the rest of her, the real her—her [[essence]], her [[consciousness]]—seemed to be quite [[intact]] and alert, floating slowly through the air in the direction of the Vltava River.
 
-Gessner could recall nothing from her recent past except a faint memory of physical pain, but her body now seemed to consist only of the atmosphere through which she was floating. The sensation was unlike anything she had ever experienced. Against her every intellectual [[instinct]], Gessner could find only one explanation.
+Gessner could [[recall]] nothing from her recent past except a [[faint]] memory of physical pain, but her body now seemed to [[consist]] only of the atmosphere through which she was floating. The [[sensation]] was unlike anything she had ever experienced. Against her every [[intellectual]] [[instinct]], Gessner could find only one explanation.
 
 I have died. This is the afterlife.
 
-Even as the notion materialized, she rejected it as absurd.
+Even as the notion [[materialized]], she rejected it as [[absurd]].
 
-The afterlife is a shared delusion…created to make our actual life bearable.
+The afterlife is a shared [[delusion]]…created to make our actual life [[bearable]].
 
-As a physician, Gessner was [[intimately familiar]] with death, and also with its finality. In medical school, while dissecting human brains, Gessner came to understand that all those personal attributes that made us who we are—our hopes, fears, dreams, memories—were nothing but [[chemical compounds]] held in [[suspension]] by [[electrical charges]] in our brains. When a person died, the brain’s power source was [[severed]], and all of those chemicals simply [[dissolved]] into a meaningless [[puddle]] of liquid, erasing every last trace of who that person had once been.
+As a physician, Gessner was [[intimately familiar]] with death, and also with its finality. In medical school, while [[dissecting]] human brains, Gessner came to understand that all those personal attributes that made us who we are—our hopes, fears, dreams, memories—were nothing but [[chemical compounds]] held in [[suspension]] by [[electrical charges]] in our brains. When a person died, the brain’s power source was [[severed]], and all of those chemicals simply [[dissolved]] into a meaningless [[puddle]] of liquid, erasing every last trace of who that person had once been.
 
 When you die, you die.
 
@@ -33,7 +33,7 @@ I have brain function, she told herself. So I must be alive.
 
 All Gessner could conclude was that she was now in the [[throes]] of what medical literature termed an OBE—out-of-body experience—a [[hallucination]] that occurred when critically injured patients were [[resuscitated]] after [[clinically dying]].
 
-OBEs almost always presented in the same manner—the perception that one’s mind had been temporarily separated from its physical body, floating upward and hovering without form. [[Despite]] feeling like real experiences, OBEs were nothing but imagined journeys, usually triggered by the effects of extreme stress and hypoxia on the brain, sometimes [[in conjunction with]] [[emergency]] room [[anesthetics]] like ketamine.
+OBEs almost always presented in the same manner—the [[perception]] that one’s mind had been temporarily separated from its physical body, floating upward and hovering without form. [[Despite]] feeling like real experiences, OBEs were nothing but imagined journeys, usually triggered by the effects of extreme stress and [[hypoxia]] on the brain, sometimes [[in conjunction with]] [[emergency]] room [[anesthetics]] like ketamine.
 
 I am hallucinating these images, Gessner assured herself, [[gazing down]] at the dark curve of the Vltava River snaking through the city. But if this is an OBE…then I must be in the process of dying.
 
@@ -71,9 +71,9 @@ The monster stared down at her from behind his thick clay mask, his cold eyes fl
 
 With that, the monster [[evaporated]], and Gessner was suddenly [[hovering]] again. She tried to [[shout]] an [[appeal]] for mercy, but her voice was [[muted]] by a [[deafening]] [[thunderclap]] as the sky [[above]] her seemed to open wide. She felt herself [[gripped]] by an unseen [[force]]—a kind of [[reverse]] [[gravity]]—[[lifting]] her higher, [[dragging]] her upward.
 
-For years, Dr. Brigita Gessner had [[derided]] her patients’ [[claims]] of returning from the [[brink]] of death. Now she found herself praying that she could join the ranks of those rare souls who had danced to the edge of oblivion, peered into the abyss, and somehow stepped back from the precipice.
+For years, Dr. Brigita Gessner had [[derided]] her patients’ [[claims]] of returning from the [[brink]] of death. Now she found herself [[praying]] that she could join the [[ranks]] of those [[rare]] souls who had danced to [[the edge]] of [[oblivion]], [[peered]] into the [[abyss]], and [[somehow]] [[stepped back]] from the [[precipice]].
 
-I can’t die…I have to warn the others!
+I can’t die…I have to [[warn]] the others!
 
 But she knew it was too late.
 
