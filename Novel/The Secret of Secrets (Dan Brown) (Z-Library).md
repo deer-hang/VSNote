@@ -1,7 +1,7 @@
 ## Prologue
 I must have died, the woman thought.
 
-She was [[drifting]] high above the [[spires]] of the old city. Beneath her, the illuminated towers of St. Vitus Cathedral [[glowed]] on a sea of [[twinkling]] [[lights]]. With her eyes, if she still had eyes, she [[traced]] the [[gentle]] [[slope]] of Castle Hill down into the heart of the Bohemian capital, following the [[labyrinth]] of [[winding]] streets that lay [[shrouded]] in a [[fresh]] blanket of snow.
+She was [[drifting]] high above the [[spires]] of the old city. Beneath her, the [[illuminated]] towers of St. Vitus Cathedral [[glowed]] on a sea of [[twinkling]] [[lights]]. With her eyes, if she still had eyes, she [[traced]] the [[gentle]] [[slope]] of Castle Hill down into the heart of the Bohemian capital, following the [[labyrinth]] of [[winding]] streets that lay [[shrouded]] in a [[fresh]] blanket of snow.
 
 Prague.
 
@@ -35,7 +35,7 @@ All Gessner could conclude was that she was now in the [[throes]] of what medica
 
 OBEs almost always presented in the same manner—the [[perception]] that one’s mind had been temporarily separated from its physical body, floating upward and hovering without form. [[Despite]] feeling like real experiences, OBEs were nothing but imagined journeys, usually triggered by the effects of extreme stress and [[hypoxia]] on the brain, sometimes [[in conjunction with]] [[emergency]] room [[anesthetics]] like ketamine.
 
-I am hallucinating these images, Gessner assured herself, [[gazing down]] at the dark curve of the Vltava River snaking through the city. But if this is an OBE…then I must be in the process of dying.
+I am hallucinating these images, Gessner [[assured]] herself, [[gazing down]] at the dark curve of the Vltava River snaking through the city. But if this is an OBE…then I must be in the process of dying.
 
 Surprised by her own calm, Gessner tried to remember what had happened to her.
 
