@@ -1,29 +1,29 @@
 ## Chapter 1
-Robert Langdon [[awoke peacefully]], enjoying the [[gentle strains]] of [[classical]] music from his phone’s alarm on the bedside table. Grieg’s “Morning Mood” was probably an [[obvious]] choice, but he had always [[considered]] it the perfect four minutes of music to start his day. As the [[woodwinds]] [[swelled]], Langdon [[savored]] the [[uncertainty]] of not being able to recall quite where he was.
+Robert Langdon [[awoke peacefully]], enjoying the [[gentle strains]] of [[classical]] music from his phone’s alarm on the bedside table. Grieg’s “Morning Mood” was probably an [[obvious]] choice, but he had always [[considered]] it the perfect four minutes of music to start his day. As the [[woodwinds]] [[swelled]], Langdon [[savored]] the [[uncertainty]] of not being able to [[recall]] quite where he was.
 
-Ah yes, he remembered, smiling to himself. The City of a Hundred Spires.
+Ah yes, he remembered, smiling to himself. [[The City of a Hundred Spires]].
 
-In the dim light, Langdon surveyed the room’s massive arched window, flanked by an antique Edwardian dresser and an alabaster lamp. The plush, hand-knotted carpet was still scattered with rose petals from last night’s turndown service.
+In the [[dim]] light, Langdon [[surveyed]] the room’s [[massive]] [[arched]] window, [[flanked by]] an [[antique]] Edwardian [[dresser]] and an [[alabaster]] lamp. The [[plush]], [[hand-knotted]] [[carpet]] was still [[scattered]] with [[rose petals]] from last night’s [[turndown service]].
 
-Langdon had come to Prague three days earlier and, as he had on previous visits, checked into the Four Seasons Hotel. When the manager insisted on upgrading Langdon’s reservation to the three-bedroom Royal Suite, he wondered if it was due to his own brand loyalty or, more likely, to the prominence of the woman with whom he was traveling.
+Langdon had come to Prague three days earlier and, as he had on [[previous visits]], [[checked into]] the Four Seasons Hotel. When the manager [[insisted on]] upgrading Langdon’s [[reservation]] to the three-bedroom Royal Suite, he wondered if it was due to his own [[brand loyalty]] or, more likely, to the [[prominence]] of the woman with whom he was traveling.
 
-“Our most celebrated guests deserve our most celebrated accommodation,” the manager had insisted.
+“Our most [[celebrated]] guests [[deserve]] our most [[celebrated]] [[accommodation]],” the manager had insisted.
 
-The suite included three separate bedrooms with en suite baths, a living room, a dining room, a grand piano, and a central bay window with a lavish arrangement of red, white, and blue tulips—a welcome gift from the U.S. embassy. Langdon’s private dressing room offered a pair of brushed wool slippers monogrammed with the initials RL. Something tells me that’s not Ralph Lauren, he thought, impressed by the personalized touch.
+The suite included three separate bedrooms with en suite baths, a [[living room]], a dining room, a [[grand piano]], and a central [[bay window]] with a [[lavish arrangement]] of red, white, and blue [[tulips]]—a welcome gift from the U.S. [[embassy]]. Langdon’s private dressing room offered a pair of [[brushed]] [[wool]] [[slippers]] [[monogrammed]] with the [[initials]] RL. Something tells me that’s not Ralph Lauren, he thought, [[impressed]] by the [[personalized touch]].
 
-Now, as he luxuriated in bed and listened to the music from his alarm, he felt a tender hand touch his shoulder.
+Now, as he [[luxuriated]] in bed and listened to the music from his alarm, he felt a [[tender]] hand touch his shoulder.
 
 “Robert?” a soft voice whispered.
 
-Langdon rolled over and felt his pulse quicken. She was there, smiling at him, her smoky gray eyes still half-asleep, her long black hair tousled around her shoulders.
+Langdon [[rolled over]] and felt his [[pulse quicken]]. She was there, smiling at him, her [[smoky gray]] eyes still half-asleep, her long black hair [[tousled]] around her shoulders.
 
 “Good morning, beautiful,” he replied.
 
-She reached over and stroked his cheek, the scent of Balade Sauvage still on her wrists.
+She [[reached over]] and [[stroked]] his [[cheek]], the scent of [[Balade Sauvage]] still on her [[wrists]].
 
-Langdon admired the elegance of her features. Despite being four years older than Langdon, she was more stunning every time he saw her—the deepening laugh lines, the faint wisps of gray in her dark hair, her playful eyes, and that mesmerizing intellect.
+Langdon [[admired]] the [[elegance]] of her [[features]]. [[Despite being four years older than Langdon]], she was more [[stunning]] every time he saw her—the deepening [[laugh lines]], [[the faint wisps of gray]] in her dark hair, her [[playful eyes]], and that [[mesmerizing]] [[intellect]].
 
-Langdon had known this remarkable woman since his days at Princeton, where she was a young assistant professor while he was an undergrad. His quiet schoolboy crush on her had gone either unnoticed or unrequited, but they’d enjoyed a flirtatious, platonic friendship ever since. Even after her professional career skyrocketed, and Langdon became a high-profile professor known throughout the world, the two of them had kept in casual contact.
+Langdon had known this [[remarkable]] woman since his days at Princeton, where she was a young [[assistant professor]] while he was an [[undergrad]]. His [[quiet schoolboy crush]] on her had gone either [[unnoticed]] or [[unrequited]], but they’d enjoyed a [[flirtatious]], [[platonic]] friendship ever since. Even after her professional career skyrocketed, and Langdon became a high-profile professor known throughout the world, the two of them had kept in casual contact.
 
 Timing is everything, Langdon now realized, still marveling at how quickly they had fallen for each other during this spontaneous business trip.
 
