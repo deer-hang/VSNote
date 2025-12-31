@@ -37,7 +37,7 @@ Earlier in the night, she had [[awoken]] in [[terror]] from an [[exceptionally]]
 
 Langdon reached over and turned off the music. “Close your eyes. I’ll be back in time for breakfast.”
 
-“Stay with me,” she [[teased]], holding him. “You can skip one day of swimming.”
+“Stay with me,” she [[teased]], [[holding him]]. “You can skip one day of swimming.”
 
 “Not if you want me to [[remain]] a [[chiseled]] younger man,” he said, [[sitting up]] with a [[lopsided]] [[grin]]. Each morning, Langdon had [[jogged]] the three kilometers to Strahov Swimming Center for his morning [[laps]].
 
@@ -47,33 +47,33 @@ Langdon reached over and turned off the music. “Close your eyes. I’ll be bac
 
 “Why not? It’s water.”
 
-“It’s tiny. Two strokes and I’m finished.”
+“It’s tiny. Two [[strokes]] and I’m finished.”
 
-“There’s a joke there, Robert, but I’ll be kind.”
+“There’s a joke there, Robert, but I’ll be [[kind]].”
 
 Langdon smiled. “Funny girl. Go back to sleep, and I’ll meet you for breakfast.”
 
-She pouted, threw a pillow at him, and rolled over.
+She [[pouted]], threw a pillow at him, and rolled over.
 
-Langdon donned his faculty-issue Harvard sweats and headed for the door, choosing to take the stairs rather than the suite’s cramped private elevator.
+Langdon [[donned]] his [[faculty-issue]] Harvard [[sweats]] and headed for the door, choosing to take the stairs rather than the suite’s [[cramped]] private elevator.
 
-Downstairs, he strode through the elegant hallway that connected the hotel’s Baroque riverfront annex with the building’s lobby. Along the way, he passed an elegant display case marked Prague Happenings, featuring a series of framed posters announcing this week’s concerts, tours, and lectures.
+[[Downstairs]], he [[strode]] through the [[elegant]] [[hallway]] that connected the hotel’s [[Baroque]] [[riverfront]] [[annex]] with the building’s [[lobby]]. Along the way, he passed an elegant [[display case]] marked Prague Happenings, [[featuring]] a series of [[framed posters]] [[announcing]] this week’s concerts, tours, and [[lectures]].
 
-The glossy poster at the center made him smile.
+The [[glossy]] poster at the center made him smile.
 
-Charles University Lecture Series
+Charles University [[Lecture]] [[Series]]
 
 Welcomes to Prague Castle
 
-Internationally Acclaimed
+Internationally [[Acclaimed]]
 
-Noetic Scientist
+[[Noetic]] Scientist
 
 Dr. Katherine Solomon
 
-Good morning, beautiful, he mused, admiring the headshot of the woman he had just kissed upstairs.
+Good morning, beautiful, he [[mused]], admiring the [[headshot]] of the woman he had just kissed upstairs.
 
-Katherine’s lecture last night had been standing room only, no small feat considering she had spoken in Prague Castle’s legendary Vladislav Hall—a cavernous, vaulted chamber used during the Renaissance to host indoor jousting competitions with knights and horses in full regalia.
+Katherine’s lecture last night had been [[standing room only]], [[no small feat]] [[considering]] she had spoken in Prague Castle’s [[legendary]] Vladislav Hall—a [[cavernous]], [[vaulted chamber]] used during the [[Renaissance]] to [[host]] [[indoor jousting competitions]] with knights and horses in [[full regalia]].
 
 The lecture series was one of Europe’s most respected and always drew accomplished speakers and enthusiastic audiences from around the world. Last night had been no exception, and the packed hall erupted with applause when Katherine was introduced.
 
