@@ -23,23 +23,23 @@ She [[reached over]] and [[stroked]] his [[cheek]], the scent of [[Balade Sauvag
 
 Langdon [[admired]] the [[elegance]] of her [[features]]. [[Despite being four years older than Langdon]], she was more [[stunning]] every time he saw her—the deepening [[laugh lines]], [[the faint wisps of gray]] in her dark hair, her [[playful eyes]], and that [[mesmerizing]] [[intellect]].
 
-Langdon had known this [[remarkable]] woman since his days at Princeton, where she was a young [[assistant professor]] while he was an [[undergrad]]. His [[quiet schoolboy crush]] on her had gone either [[unnoticed]] or [[unrequited]], but they’d enjoyed a [[flirtatious]], [[platonic]] friendship ever since. Even after her professional career skyrocketed, and Langdon became a high-profile professor known throughout the world, the two of them had kept in casual contact.
+Langdon had known this [[remarkable]] woman since his days at Princeton, where she was a young [[assistant professor]] while he was an [[undergrad]]. His [[quiet schoolboy crush]] on her had gone either [[unnoticed]] or [[unrequited]], but they’d enjoyed a [[flirtatious]], [[platonic]] friendship ever since. Even after her [[professional]] career [[skyrocketed]], and Langdon became a [[high-profile]] professor known throughout the world, the two of them had kept in [[casual contact]].
 
-Timing is everything, Langdon now realized, still marveling at how quickly they had fallen for each other during this spontaneous business trip.
+Timing is everything, Langdon now realized, still [[marveling at]] how quickly they had fallen for each other during this [[spontaneous business trip]].
 
-As “Morning Mood” crescendoed into the full orchestration of the theme, he pulled her close with a strong arm, and she nuzzled into his chest. “Sleep okay?” he whispered. “No more bad dreams?”
+As “Morning Mood” [[crescendoed]] into the full [[orchestration]] of the [[theme]], he pulled her close with a strong arm, and she [[nuzzled]] into his chest. “Sleep okay?” he whispered. “No more bad dreams?”
 
-She shook her head and sighed. “I’m so embarrassed. That was awful.”
+She shook her head and [[sighed]]. “I’m so embarrassed. That was awful.”
 
-Earlier in the night, she had awoken in terror from an exceptionally vivid nightmare, and Langdon had needed to comfort her for nearly an hour before she could get back to sleep. The dream’s unusual intensity, Langdon assured her, had been the result of her ill-advised nightcap of Bohemian absinthe, which Langdon had always believed should be served with a disclaimer: Popular during the Belle Epoque for its hallucinogenic properties.
+Earlier in the night, she had [[awoken]] in [[terror]] from an [[exceptionally]] [[vivid]] [[nightmare]], and Langdon had needed to [[comfort]] her for nearly an hour before she could get back to sleep. The dream’s [[unusual]] [[intensity]], Langdon [[assured]] her, had been the result of her [[ill-advised]] [[nightcap]] of Bohemian absinthe, which Langdon had always [[believed]] should be served with a [[disclaimer]]: Popular during the [[Belle Epoque]] for its [[hallucinogenic]] [[properties]].
 
 “Never again,” she assured him.
 
 Langdon reached over and turned off the music. “Close your eyes. I’ll be back in time for breakfast.”
 
-“Stay with me,” she teased, holding him. “You can skip one day of swimming.”
+“Stay with me,” she [[teased]], holding him. “You can skip one day of swimming.”
 
-“Not if you want me to remain a chiseled younger man,” he said, sitting up with a lopsided grin. Each morning, Langdon had jogged the three kilometers to Strahov Swimming Center for his morning laps.
+“Not if you want me to [[remain]] a [[chiseled]] younger man,” he said, [[sitting up]] with a [[lopsided]] [[grin]]. Each morning, Langdon had [[jogged]] the three kilometers to Strahov Swimming Center for his morning [[laps]].
 
 “It’s dark out,” she pressed. “Can’t you just swim here?”
 
