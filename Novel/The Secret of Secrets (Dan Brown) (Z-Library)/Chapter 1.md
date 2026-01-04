@@ -75,7 +75,7 @@ Good morning, beautiful, he [[mused]], admiring the [[headshot]] of the woman he
 
 Katherine’s lecture last night had been [[standing room only]], [[no small feat]] [[considering]] she had spoken in Prague Castle’s [[legendary]] Vladislav Hall—a [[cavernous]], [[vaulted chamber]] used during the [[Renaissance]] to [[host]] [[indoor jousting competitions]] with knights and horses in [[full regalia]].
 
-The lecture series was one of Europe’s most respected and always drew accomplished speakers and enthusiastic audiences from around the world. Last night had been no exception, and the packed hall erupted with applause when Katherine was introduced.
+The [[lecture series]] was one of Europe’s most respected and always [[drew]] [[accomplished speakers]] and [[enthusiastic audiences]] from around the world. Last night had been no [[exception]], and the [[packed hall]] [[erupted with applause]] when Katherine [[was introduced]].
 
 “Thank you, everyone,” Katherine said, taking the stage with a confident calm. She wore a white cashmere sweater and designer slacks that fit her flawlessly. “I’d like to begin tonight by answering the one question I am asked almost every day.” She grinned and pulled the microphone off its stand. “What the hell is noetic science?!”
 
