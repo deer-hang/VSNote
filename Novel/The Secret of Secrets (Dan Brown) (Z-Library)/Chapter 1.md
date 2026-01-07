@@ -77,95 +77,95 @@ Katherine’s lecture last night had been [[standing room only]], [[no small fea
 
 The [[lecture series]] was one of Europe’s most respected and always [[drew]] [[accomplished speakers]] and [[enthusiastic audiences]] from around the world. Last night had been no [[exception]], and the [[packed hall]] [[erupted with applause]] when Katherine [[was introduced]].
 
-“Thank you, everyone,” Katherine said, taking the stage with a confident calm. She wore a white cashmere sweater and designer slacks that fit her flawlessly. “I’d like to begin tonight by answering the one question I am asked almost every day.” She grinned and pulled the microphone off its stand. “What the hell is noetic science?!”
+“Thank you, everyone,” Katherine said, taking the [[stage]] with a [[confident calm]]. She wore a white [[cashmere sweater]] and [[designer]] [[slacks]] that fit her [[flawlessly]]. “I’d like to begin tonight by answering the one question I am asked almost every day.” She [[grinned]] and pulled the [[microphone]] off its [[stand]]. “What the hell is noetic science?!”
 
-A wave of laughter rolled through the hall as the audience settled in.
+A [[wave]] of [[laughter]] rolled through the hall as the audience [[settled in]].
 
-“Simply stated,” Katherine began, “noetic science is the study of human consciousness. Contrary to what many believe, consciousness research is not a new science—it is, in fact, the oldest science on earth. Since the dawn of history, we have sought answers to the enduring mysteries of the human mind…the nature of consciousness and of the soul. And for centuries, we have explored these questions primarily through…the lens of religion.”
+“Simply [[stated]],” Katherine began, “noetic science is the study of human consciousness. [[Contrary]] to what many believe, consciousness [[research]] is not a new science—it is, in fact, the oldest science on earth. Since the dawn of history, we have [[sought]] answers to the [[enduring]] [[mysteries]] of the human mind…the [[nature]] of consciousness and of the soul. And for centuries, we have [[explored]] these questions [[primarily]] through…the [[lens]] of [[religion]].”
 
-Katherine stepped off the stage, moving toward the front row of attendees. “And speaking of religion, ladies and gentlemen, I couldn’t help but notice that we have in the audience with us tonight a world-renowned scholar of religious symbology, Professor Robert Langdon.”
+Katherine [[stepped off]] the stage, moving toward the front row of [[attendees]]. “And speaking of religion, ladies and gentlemen, I couldn’t help but notice that we have in the audience with us tonight a [[world-renowned]] [[scholar]] of [[religious symbology]], Professor Robert Langdon.”
 
-Langdon heard murmurs of excitement in the crowd. What the hell is she doing?!
+Langdon heard [[murmurs]] of excitement in the [[crowd]]. What the hell is she doing?!
 
-“Professor,” she said, arriving before him with a smile, “I wonder if we might avail ourselves of your expertise for a moment? Would you mind standing up?”
+“Professor,” she said, arriving before him with a smile, “I wonder if we might [[avail ourselves of your expertise]] for a moment? Would you mind standing up?”
 
-Langdon politely stood, quietly shooting her a you’ll-pay-for-this grin.
+Langdon [[politely]] stood, [[quietly]] shooting her a you’ll-pay-for-this grin.
 
 “I’m curious, Professor…what is the most common religious symbol on earth?”
 
-The answer was simple, and either Katherine had read Langdon’s article on the topic and knew what was coming, or she was about to be very disappointed.
+The answer was simple, and either Katherine had read Langdon’s article on the topic and knew what was coming, or she was about to be very [[disappointed]].
 
-Langdon accepted the microphone and turned to face the sea of eager faces, dimly lit by chandeliers hanging on ancient iron chains. “Good evening, everyone,” he said, his deep baritone booming through the speakers. “And thank you to Dr. Solomon for putting me on the spot with no warning whatsoever.”
+Langdon [[accepted]] the microphone and turned to face the [[sea of eager faces]], [[dimly lit]] by [[chandeliers]] [[hanging on]] ancient iron [[chains]]. “Good evening, everyone,” he said, his deep [[baritone]] [[booming]] through the [[speakers]]. “And thank you to Dr. Solomon for [[putting me on the spot]] with [[no warning whatsoever]].”
 
-The audience clapped.
+The audience [[clapped]].
 
 “All right then,” he said, “the world’s most common religious symbol? Does anyone have a guess?”
 
 A dozen hands went up.
 
-“Excellent,” Langdon said. “Any guesses that are not the crucifix?”
+“[[Excellent]],” Langdon said. “Any guesses that are not the [[crucifix]]?”
 
-Every single hand went down.
+Every single hand [[went down]].
 
-Langdon chuckled. “It’s true that the crucifix is extremely common, but it is also a uniquely Christian symbol. There is, in fact, one universal symbol that appears in the artwork of every religion in history.”
+Langdon [[chuckled]]. “It’s true that the crucifix is extremely common, but it is also a [[uniquely]] [[Christian]] symbol. There is, in fact, one [[universal]] symbol that appears in the [[artwork]] of every religion in history.”
 
 The audience exchanged puzzled looks.
 
-“You’ve all seen it many times,” Langdon coaxed. “Perhaps on the Egyptian Horakhty stela?”
+“You’ve all seen it many times,” Langdon [[coaxed]]. “Perhaps on the [[Egyptian]] Horakhty [[stela]]?”
 
-He paused.
+He [[paused]].
 
-“How about the Buddhist Kanishka casket? Or the famed Christ Pantocrator?”
+“How about the [[Buddhist Kanishka casket]]? Or the famed [[Christ Pantocrator]]?”
 
-Silence. Dead stares.
+[[Silence]]. [[Dead stares]].
 
-Oh boy, Langdon thought. Definitely a science crowd.
+Oh boy, Langdon thought. [[Definitely]] a [[science crowd]].
 
-“It also appears in hundreds of the most celebrated Renaissance paintings—Leonardo da Vinci’s second Virgin of the Rocks, Fra Angelico’s The Annunciation, Giotto’s Lamentation, Titian’s Temptation of Christ, and countless depictions of Madonna and Child…?”
+“It also appears in hundreds of the most [[celebrated]] Renaissance paintings—Leonardo da Vinci’s second Virgin of the [[Rocks]], Fra Angelico’s The Annunciation, Giotto’s Lamentation, Titian’s Temptation of Christ, and countless depictions of Madonna and Child…?”
 
 Still nothing.
 
-“The symbol I’m referring to,” he said, “is the halo.”
+“The symbol I’m referring to,” he said, “is the [[halo]].”
 
 Katherine smiled, apparently knowing this would be his answer.
 
-“The halo,” Langdon continued, “is the disk of light that appears over the head of an enlightened being. In Christianity, halos hover over Jesus, Mary, and the saints. Going further back, a sun disk hovered over the ancient Egyptian god Ra, and in Eastern religions a nimbus halo appeared over the Buddha and the Hindu deities.”
+“The halo,” Langdon continued, “is the [[disk of light]] that appears over the head of an [[enlightened being]]. In [[Christianity]], halos hover over Jesus, Mary, and the [[saints]]. [[Going further back]], a sun disk hovered over the ancient Egyptian god Ra, and in Eastern religions a [[nimbus halo]] appeared over the [[Buddha]] and the [[Hindu]] [[deities]].”
 
-“Wonderful, thank you, Professor,” Katherine said, reaching for the microphone, but Langdon ignored her and pivoted away playfully—a touch of payback. Never ask an historian a question you don’t want answered fully.
+“Wonderful, thank you, Professor,” Katherine said, reaching for the microphone, but Langdon ignored her and [[pivoted]] away [[playfully]]—[[a touch of payback]]. Never ask an [[historian]] a question you don’t want answered fully.
 
-“I should add,” Langdon said as the crowd laughed appreciatively, “that halos come in all shapes, sizes, and artistic representations. Some are solid gold disks, some are transparent, and some are even square. Ancient Jewish scripture describes Moses’s head as being surrounded by a ‘hila’—the Hebrew word for ‘halo’ or ‘emanation of light.’ Certain specialized forms of halos have rays of light emanating from them…glowing spines that radiate outward in all directions.”
+“I should add,” Langdon said as the crowd laughed [[appreciatively]], “that halos come in all shapes, sizes, and [[artistic representations]]. Some are [[solid]] [[gold]] disks, some are [[transparent]], and some are even [[square]]. Ancient [[Jewish]] [[scripture]] describes Moses’s head as being surrounded by a ‘hila’—the [[Hebrew]] word for ‘halo’ or ‘[[emanation]] of light.’ [[Certain]] [[specialized]] forms of halos have [[rays]] of light emanating from them…[[glowing]] [[spines]] that [[radiate]] outward in all directions.”
 
-Langdon turned back to Katherine with a devious smile. “Perhaps Dr. Solomon knows what this type of halo is called?” He tipped the mic to her.
+Langdon turned back to Katherine with a [[devious]] smile. “Perhaps Dr. Solomon knows what this type of halo is called?” He [[tipped]] the mic to her.
 
-“A radiant crown,” she said without missing a beat.
+“A [[radiant]] [[crown]],” she said [[without missing a beat]].
 
-Someone did her reading. Langdon brought the mic back to his lips. “Yes, the radiant crown is a particularly significant symbol. It appears throughout history adorning the heads of Horus, Helios, Ptolemy, Caesar…and even the towering Colossus of Rhodes.”
+[[Someone did her reading.]] Langdon [[brought]] the mic back to his [[lips]]. “Yes, the radiant crown is a [[particularly]] [[significant]] symbol. It appears throughout history [[adorning]] the heads of Horus, Helios, Ptolemy, Caesar…and even the [[towering]] [[Colossus of Rhodes]].”
 
-Langdon gave the crowd a conspiratorial grin. “Few people realize this, but the most photographed object in all of New York City happens to be…a radiant crown.”
+Langdon gave the crowd a [[conspiratorial]] grin. “Few people realize this, but the most [[photographed object]] in all of New York City happens to be…a radiant crown.”
 
 Puzzled looks, even from Katherine.
 
-“Any guesses?” he asked. “None of you has ever photographed the radiant crown that hovers three hundred feet above New York Harbor?” Langdon waited as the murmur of revelation grew in the crowd.
+“Any guesses?” he asked. “None of you has ever photographed the radiant crown that hovers three hundred [[feet]] above New York [[Harbor]]?” Langdon waited as [[the murmur of revelation]] grew in the crowd.
 
-“The Statue of Liberty!” someone called out.
+[[The Statue of Liberty]]! someone [[called out]].
 
-“Exactly,” Langdon said. “The Statue of Liberty wears a radiant crown—an ancient halo—that universal icon we have used through history to identify special individuals who we believe possess divine enlightenment…or an advanced state of…consciousness.”
+“Exactly,” Langdon said. “The Statue of Liberty wears a radiant crown—an ancient halo—that [[universal]] icon we have used through history to [[identify]] special [[individuals]] who we believe [[possess]] [[divine]] [[enlightenment]]…or an advanced state of…consciousness.”
 
-As Langdon handed the mic back to Katherine, she was beaming. Thank you, she mouthed to him as he returned to his seat amid applause.
+As Langdon handed the mic back to Katherine, she was [[beaming]]. Thank you, she [[mouthed]] to him as he returned to his seat [[amid]] [[applause]].
 
-Katherine walked back onto the stage. “As Professor Langdon has just stated so eloquently, humans have been contemplating consciousness for a long time. But even now, with advanced science, we have trouble defining it. In fact, many scientists are afraid even to discuss consciousness.” Katherine glanced around and whispered, “They call it the c-word.”
+Katherine walked back onto the stage. “As Professor Langdon has just stated so [[eloquently]], humans have been [[contemplating]] consciousness for a long time. But even now, with advanced science, we have trouble [[defining]] it. In fact, many scientists are afraid even to [[discuss]] consciousness.” Katherine [[glanced around]] and whispered, “[[They call it the c-word.]]”
 
-Scattered laughter rippled through the room again.
+[[Scattered]] laughter [[rippled]] through the room again.
 
-Katherine nodded to a spectacled woman in the front. “Ma’am, how would you define consciousness?”
+Katherine [[nodded]] to a [[spectacled]] woman in the front. “Ma’am, how would you define consciousness?”
 
-The woman thought a moment. “I suppose…an awareness of my own existence?”
+The woman thought a moment. “I suppose…an [[awareness]] of my own [[existence]]?”
 
 “Perfect,” Katherine said. “And where does that awareness come from?”
 
 “My brain, I guess,” she said. “My thoughts, ideas, imaginations…the brain activity that makes me who I am.”
 
-“Very well said, thank you.” Katherine lifted her gaze back to the audience. “So can we all start by agreeing on the basics? Consciousness is created by your brain—the three-pound bundle of eighty-six billion neurons inside your skull—and therefore consciousness is located inside our heads.”
+“Very well said, thank you.” Katherine lifted her [[gaze]] back to the audience. “So can we all start by agreeing on the basics? Consciousness is created by your brain—the three-pound bundle of eighty-six billion neurons inside your skull—and therefore consciousness is located inside our heads.”
 
 Nods all around.
 
