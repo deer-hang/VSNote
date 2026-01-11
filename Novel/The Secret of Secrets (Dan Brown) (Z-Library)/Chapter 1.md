@@ -161,25 +161,25 @@ Katherine [[nodded]] to a [[spectacled]] woman in the front. “Ma’am, how wou
 
 The woman thought a moment. “I suppose…an [[awareness]] of my own [[existence]]?”
 
-“Perfect,” Katherine said. “And where does that awareness come from?”
+“Perfect,” Katherine said. “And where does that [[awareness]] come from?”
 
 “My brain, I guess,” she said. “My thoughts, ideas, imaginations…the brain activity that makes me who I am.”
 
-“Very well said, thank you.” Katherine lifted her [[gaze]] back to the audience. “So can we all start by agreeing on the basics? Consciousness is created by your brain—the three-pound bundle of eighty-six billion neurons inside your skull—and therefore consciousness is located inside our heads.”
+“Very well said, thank you.” Katherine lifted her [[gaze]] back to the audience. “So can we all start by agreeing on the basics? Consciousness is created by your brain—the three-pound [[bundle]] of eighty-six billion [[neurons]] inside your [[skull]]—and therefore consciousness is located inside our heads.”
 
 Nods all around.
 
-“Wonderful,” Katherine said. “We’ve all just agreed on the currently accepted model of human consciousness.” After a beat, she sighed heavily. “The problem is…the currently accepted model is dead wrong. Your consciousness is not created by your brain. And in fact, your consciousness is not even located inside your head.”
+“Wonderful,” Katherine said. “We’ve all just agreed on the currently accepted model of human consciousness.” After a beat, she [[sighed]] heavily. “The problem is…the currently accepted model is dead wrong. Your consciousness is not created by your brain. And in fact, your consciousness is not even located inside your head.”
 
-A stunned silence followed.
+A [[stunned]] silence followed.
 
 The spectacled woman in the front row said, “But…if my consciousness is not located inside my head…where is it?”
 
-“I’m so glad you asked,” Katherine said, smiling to the assembled crowd. “Settle in, folks. We’re in for quite a ride tonight.”
+“I’m so glad you asked,” Katherine said, smiling to the [[assembled]] crowd. “[[Settle in]], [[folks]]. We’re in for quite a ride tonight.”
 
-Rock star, Langdon thought as he walked toward the hotel lobby, still hearing the echoes of Katherine’s standing ovation. Her presentation had been a dazzling tour de force that left the crowd stunned and clamoring for more. When someone asked about her current work, Katherine revealed she had just put the finishing touches on a book that she hoped would help redefine the current paradigm of consciousness.
+Rock star, Langdon thought as he walked toward the hotel [[lobby]], still hearing the [[echoes]] of Katherine’s standing [[ovation]]. Her [[presentation]] had been a [[dazzling]] [[tour de force]] that left the crowd [[stunned]] and [[clamoring for more]]. When someone asked about her current work, Katherine [[revealed]] she had just put the [[finishing touches]] on a book that she hoped would help redefine the current [[paradigm]] of consciousness.
 
-Langdon had helped Katherine secure a publishing deal, although he had yet to read her manuscript. She had revealed enough of its contents to leave Langdon enthralled and eager to read, but he sensed she had kept all the most shocking revelations to herself. Katherine Solomon is never short on surprises.
+Langdon had helped Katherine [[secure]] a [[publishing deal]], although he [[had yet to]] read her [[manuscript]]. She had [[revealed]] enough of its contents to [[leave]] Langdon [[enthralled]] and [[eager to read]], but he sensed she had kept all the most [[shocking]] [[revelations]] to herself. Katherine Solomon is never short on surprises.
 
 Now, as he neared the hotel lobby, Langdon suddenly recalled that Katherine was slated for an 8 a.m. meeting this morning with Dr. Brigita Gessner—the eminent Czech neuroscientist who had personally invited Katherine to speak at the lecture series. Gessner’s invitation had been generous, and yet after meeting the woman last night following the event and finding her insufferable, Langdon now secretly hoped Katherine would oversleep and opt for breakfast with him instead.
 
