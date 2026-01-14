@@ -1,29 +1,29 @@
 ## Chapter 2
-The Golěm hobbled through the snow, the hem of his long black cape dragging through the dirty slush that covered Kaprova Street. Hidden beneath the cloak, his massive platform boots felt so heavy he could barely lift his legs. On his face and skull, a thick layer of clay tightened in the cold air.
+The Golěm [[hobbled]] through the snow, the [[hem]] of his long black [[cape]] dragging through the dirty [[slush]] that covered Kaprova Street. Hidden beneath the [[cloak]], his [[massive]] [[platform boots]] felt so heavy he could [[barely]] lift his legs. On his face and skull, a thick layer of clay [[tightened]] in the cold air.
 
 I must get home.
 
-The Ether is gathering.
+The [[Ether]] is [[gathering]].
 
-Fearing the Ether might overtake him, The Golěm reached into his pocket and grasped the small metal rod he kept with him at all times. He raised the object to his head and pressed it hard against the top of his skull, rubbing it in small circles on the dried clay.
+Fearing the Ether might [[overtake]] him, The Golěm reached into his pocket and [[grasped]] the small [[metal rod]] he kept with him at all times. He raised the object to his head and pressed it hard against the top of his skull, [[rubbing]] it in small circles on the dried clay.
 
-Not yet, he incanted silently, closing his eyes.
+Not yet, he [[incanted]] [[silently]], closing his eyes.
 
-The Ether dispersed, at least for the moment, and he placed the rod back into his pocket and pushed onward.
+The Ether [[dispersed]], at least for the moment, and he placed the rod back into his pocket and [[pushed onward]].
 
-A few more blocks, and I can Release.
+A few more [[blocks]], and I can [[Release]].
 
-The Old Town Square—known in Prague as Staromák—was deserted this dark morning, save for a pair of tourists clutching burnt-sugar pastries and gazing up at the famous medieval clock. Every hour, the ancient timepiece presented its “Walk of the Apostles,” a juddering procession of saints that mechanically rotated in and out of view through two small windows in the clock face.
+[[The Old Town Square]]—known in Prague as Staromák—was [[deserted]] this dark morning, [[save for]] a pair of tourists [[clutching]] [[burnt-sugar pastries]] and gazing up at the famous [[medieval]] clock. Every hour, the ancient [[timepiece]] [[presented]] its “[[Walk of the Apostles]],” a [[juddering]] [[procession of saints]] that [[mechanically]] rotated in and out of view through two small windows in the clock face.
 
-Circling aimlessly since the fifteenth century, The Golěm thought, and still it attracts sheep to observe the spectacle.
+[[Circling aimlessly]] since the fifteenth century, The Golěm thought, and still it [[attracts]] [[sheep]] to [[observe]] the [[spectacle]].
 
-As The Golěm passed the couple, they glanced over at him and spontaneously gasped, stepping backward. He was well accustomed to this reaction from strangers. It reminded him he had a physical form, even if they could not see what he truly was.
+As The Golěm passed the couple, they [[glanced over]] at him and [[spontaneously]] [[gasped]], [[stepping backward]]. He was [[well accustomed to]] this [[reaction]] from strangers. It reminded him he had a physical form, even if they could not see what he truly was.
 
 I am The Golěm.
 
-I am not of your realm.
+I am not of your [[realm]].
 
-The Golěm felt untethered at times, as if he might float away, and he enjoyed draping his mortal shell in heavy robes. The weight of the cloak and platform boots accentuated the pull of gravity, anchoring him to the earth. His clay-smeared head and hooded cloak made him a frightening oddity, even in Prague, where costumes at night were common.
+The Golěm felt [[untethered]] at times, as if he might float away, and he enjoyed draping his mortal shell in heavy robes. The weight of the cloak and platform boots accentuated the pull of gravity, anchoring him to the earth. His clay-smeared head and hooded cloak made him a frightening oddity, even in Prague, where costumes at night were common.
 
 But what made The Golěm a truly arresting vision were the three ancient letters emblazoned on his forehead…etched into the clay with a palette knife.
 
