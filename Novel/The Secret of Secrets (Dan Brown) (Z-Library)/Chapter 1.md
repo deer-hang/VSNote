@@ -181,15 +181,15 @@ Rock star, Langdon thought as he walked toward the hotel [[lobby]], still hearin
 
 Langdon had helped Katherine [[secure]] a [[publishing deal]], although he [[had yet to]] read her [[manuscript]]. She had [[revealed]] enough of its contents to [[leave]] Langdon [[enthralled]] and [[eager to read]], but he sensed she had kept all the most [[shocking]] [[revelations]] to herself. Katherine Solomon is never short on surprises.
 
-Now, as he neared the hotel lobby, Langdon suddenly recalled that Katherine was slated for an 8 a.m. meeting this morning with Dr. Brigita Gessner—the eminent Czech neuroscientist who had personally invited Katherine to speak at the lecture series. Gessner’s invitation had been generous, and yet after meeting the woman last night following the event and finding her insufferable, Langdon now secretly hoped Katherine would oversleep and opt for breakfast with him instead.
+Now, as he neared the hotel lobby, Langdon suddenly [[recalled]] that Katherine was [[slated for]] an 8 a.m. meeting this morning with Dr. Brigita Gessner—the [[eminent]] Czech neuroscientist who had personally invited Katherine to speak at the lecture series. Gessner’s invitation had been generous, and yet after meeting the woman last night [[following the event]] and finding her [[insufferable]], Langdon now secretly hoped Katherine would oversleep and [[opt]] for breakfast with him instead.
 
-Pushing it from his thoughts, he entered the lobby, enjoying the fragrance of the extravagant bouquets of roses that always graced the main entrance. The scene that greeted him in the lobby, however, was far less welcoming.
+Pushing it from his thoughts, he entered the lobby, enjoying the [[fragrance]] of the [[extravagant]] [[bouquets]] of roses that always [[graced]] the main [[entrance]]. The scene that greeted him in the lobby, however, was far less welcoming.
 
-Two black-clad police officers were stalking intently through the open space, working a pair of German shepherds. Both dogs wore bulletproof vests marked Policie and were sniffing around as if searching for…something.
+Two black-clad police officers were [[stalking intently]] through the open space, working a pair of [[German shepherds.]] Both dogs wore [[bulletproof]] [[vests]] marked Policie and were [[sniffing]] around as if searching for…something.
 
 That doesn’t look good. Langdon went over to the front desk. “Is everything okay?”
 
-“Oh, heavens yes, Mr. Langdon!” The immaculately dressed manager nearly curtsied as he rushed out to greet Langdon. “All is perfection, Professor. A minor issue last night, but a false alarm,” he assured, shaking his head dismissively. “Just taking precautions. As you know, security is a top priority here at the Four Seasons Prague.”
+“Oh, heavens yes, Mr. Langdon!” The [[immaculately]] dressed manager nearly [[curtsied]] as he rushed out to greet Langdon. “All is perfection, Professor. A minor issue last night, but a false alarm,” he assured, shaking his head [[dismissively]]. “Just taking [[precautions]]. As you know, security is a top priority here at the Four Seasons Prague.”
 
 Langdon eyed the policemen. Minor issue? These guys hardly looked minor.
 
@@ -199,4 +199,4 @@ Langdon eyed the policemen. Minor issue? These guys hardly looked minor.
 
 “But it’s snowing!”
 
-The native New Englander glanced outside at the faint skittering of snowflakes in the air and gave the manager a smile. “If I’m not back in an hour, send one of those dogs to dig me out.”
+The native New Englander [[glanced]] outside at the faint [[skittering]] of snowflakes in the air and gave the manager a smile. “If I’m not back in an hour, send one of those dogs to [[dig]] me out.”
