@@ -64,16 +64,16 @@ As he [[pressed on]] through the snowy streets, The Golěm felt the Ether return
 Soon, he [[promised]].
 
 
-In London, an American named Mr. Finch polished a pair of Cartier Panthère glasses and paced his luxurious office. His impatience had turned to deep concern.
+In London, an American named Mr. Finch [[polished]] a pair of Cartier Panthère glasses and [[paced]] his [[luxurious office]]. His [[impatience]] had turned to deep [[concern]].
 
-Where the hell is Gessner? Why can’t I reach her?
+Where the hell is Gessner? Why can’t I [[reach]] her?
 
-He knew the Czech neuroscientist had attended Katherine Solomon’s lecture last night at Prague Castle, and afterward she had sent Finch an alarming message regarding the book Solomon would soon publish. It was not good news. Gessner had promised to call Finch with an update.
+He knew the Czech neuroscientist had [[attended]] Katherine Solomon’s lecture last night at Prague Castle, and [[afterward]] she had sent Finch an alarming message [[regarding]] the book Solomon would soon publish. It was not good news. Gessner had promised to call Finch with an update.
 
-So far, Finch had not heard a word, and it was nearly dawn.
+So far, Finch had not heard a word, and it was nearly [[dawn]].
 
 He had messaged and called her repeatedly with no response.
 
-It’s been six hours…Gessner is meticulous—this is patently unlike her.
+It’s been six hours…Gessner is [[meticulous]]—this is [[patently]] unlike her.
 
-Having ascended to the pinnacle of his profession by following his gut, Mr. Finch had learned to listen to his intuition. Unfortunately, his instincts were now telling him that something in Prague had gone dangerously awry.
+Having [[ascended]] to the [[pinnacle]] of his [[profession]] by following his [[gut]], Mr. Finch had learned to listen to his [[intuition]]. Unfortunately, his [[instincts]] were now telling him that something in Prague had gone [[dangerously awry]].
