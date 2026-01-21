@@ -1,64 +1,64 @@
-Chapter 3
-The winter air felt crisp and invigorating as Robert Langdon ran southward along Křižovnická Street, his long strides leaving a lone trail of footprints in the sidewalk’s thin covering of snow.
+## Chapter 3
+The winter air felt [[crisp]] and [[invigorating]] as Robert Langdon ran southward along Křižovnická Street, his long [[strides]] leaving a lone [[trail]] of [[footprints]] in the [[sidewalk’s]] [[thin]] covering of snow.
 
-The city of Prague had always felt enchanted to him. It was a moment frozen in time. Having suffered far less damage than other European cities in World War II, the historical capital of Bohemia enjoyed a dazzling skyline that still sparkled with all its original architecture—a uniquely varied and pristine sampling of Romanesque, Gothic, Baroque, Art Nouveau, and Neoclassical designs.
+The city of Prague had always felt [[enchanted]] to him. It was [[a moment frozen in time]]. Having suffered far less damage than other European cities in World War II, the historical capital of Bohemia [[enjoyed]] a [[dazzling]] skyline that still [[sparkled]] with all its [[original]] [[architecture]]—a [[uniquely]] [[varied]] and [[pristine]] [[sampling]] of Romanesque, Gothic, Baroque, Art Nouveau, and Neoclassical designs.
 
-The city’s nickname—Stověžatá—literally meant “with a hundred spires,” although the actual number of spires and steeples in Prague was closer to seven hundred. In the summer, the city occasionally illuminated them with a sea of green floodlights; the awe-inspiring effect was said to have inspired Hollywood’s depiction in The Wizard of Oz of the Emerald City—a mystical destination that, like Prague, was believed to be a place of magical possibilities.
+The city’s nickname—Stověžatá—[[literally]] meant “with a hundred spires,” although the actual number of spires and [[steeples]] in Prague was closer to seven hundred. In the summer, the city [[occasionally]] [[illuminated]] them with a sea of green [[floodlights]]; the [[awe-inspiring]] effect was said to have [[inspired]] Hollywood’s [[depiction]] in The Wizard of Oz of the [[Emerald]] City—a [[mystical]] destination that, like Prague, was believed to be a place of magical [[possibilities]].
 
-As Langdon jogged across Platnéřská Street, he felt as if he were running through the pages of a history book. The colossal facade of Prague’s Klementinum loomed on his left, a two-hectare complex that housed the viewing tower used by the astronomers Tycho Brahe and Johannes Kepler, as well as an exquisite Baroque library holding more than twenty thousand volumes of ancient theological literature. This library was Langdon’s favorite room in Prague, and possibly in all of Europe. He and Katherine had just visited its newest exhibit yesterday.
+As Langdon jogged across Platnéřská Street, he felt as if he were running through the pages of a history book. The [[colossal]] [[facade]] of Prague’s Klementinum [[loomed]] on his left, a two-[[hectare]] [[complex]] that [[housed]] the [[viewing tower]] used by the [[astronomers]] Tycho Brahe and Johannes Kepler, as well as an [[exquisite]] Baroque library holding more than twenty thousand [[volumes]] of ancient [[theological]] literature. This library was Langdon’s favorite room in Prague, and possibly in all of Europe. He and Katherine had just visited its newest exhibit yesterday.
 
-Now, as he turned right at the Church of St. Francis of Assisi, he could see, directly ahead of him, the east entrance to one of the city’s most famous landmarks, illuminated in the amber glow of Prague’s rare gas streetlamps. Hailed by many as the most romantic bridge in the world, Karlův most—Charles Bridge—was constructed of Bohemian sandstone and lined on both sides by thirty statues of Christian saints. Stretching more than half a kilometer across the placid Vltava River, protected on both ends by massive guard towers, the bridge had once served as a critical trade route between Eastern and Western Europe.
+Now, as he turned right at the Church of St. Francis of Assisi, he could see, directly ahead of him, the east entrance to one of the city’s most famous [[landmarks]], illuminated in the [[amber]] [[glow]] of Prague’s [[rare]] [[gas streetlamps]]. [[Hailed]] by many as the most romantic bridge in the world, Karlův most—Charles Bridge—was [[constructed]] of Bohemian [[sandstone]] and [[lined]] on both sides by [[thirty statues]] of [[Christian saints]]. [[Stretching]] more than [[half a kilometer]] [[across]] the [[placid]] Vltava River, [[protected]] on both ends by massive [[guard towers]], the bridge had once [[served as]] a [[critical]] [[trade route]] between Eastern and Western Europe.
 
-Langdon ran through the archway in the east tower, emerging to see an untarnished blanket of snow stretching out before him. The bridge was for pedestrians only, and yet, at this hour, there was not a single footprint.
+Langdon ran through the [[archway]] in the east tower, [[emerging]] to see an [[untarnished]] blanket of snow [[stretching out]] before him. The bridge was for [[pedestrians]] only, and yet, at this hour, there was not a single footprint.
 
-I’m alone on Charles Bridge, Langdon thought. A life moment. He had once been similarly alone in the Louvre with the Mona Lisa, but those circumstances had been far less pleasant than this.
+I’m alone on Charles Bridge, Langdon thought. [[A life moment]]. He had once been [[similarly]] alone in the [[Louvre]] with the Mona Lisa, but those [[circumstances]] had been [[far less pleasant than this]].
 
-Langdon’s strides lengthened as he settled into his pace, and by the time he reached the other side of the river, he was running effortlessly. To his right, illuminated high against the dark skyline, shone the city’s most beloved glittering gem.
+Langdon’s [[strides]] [[lengthened]] as he [[settled into his pace]], and by the time he reached the other side of the river, he was running [[effortlessly]]. To his right, illuminated high against the dark skyline, [[shone]] the city’s most [[beloved]] [[glittering]] [[gem]].
 
 Prague Castle.
 
-It was the largest castle complex in the world, stretching more than half a kilometer from its western gate to its eastern tip, and had a footprint of nearly five million square feet. The outer walls enclosed six formal gardens, four discrete palaces, and four Christian churches, including the magnificent St. Vitus Cathedral, in which the Crown Jewels of Bohemia were safeguarded, along with the crown of Saint Wenceslas, the beloved ruler commemorated in the popular Christmas carol.
+It was the largest castle complex in the world, stretching more than half a kilometer from its western gate to its [[eastern tip]], and had [[a footprint of]] nearly five million [[square feet]]. The outer walls [[enclosed]] six [[formal gardens]], four [[discrete palaces]], and four [[Christian churches]], including the magnificent [[St. Vitus Cathedral]], in which [[the Crown Jewels of Bohemia]] were [[safeguarded]], along with the crown of [[Saint Wenceslas]], the [[beloved]] [[ruler]] [[commemorated]] in the popular [[Christmas carol]].
 
 As Langdon passed beneath the west tower of Charles Bridge, he laughed to himself, thinking of the event at Prague Castle the night before.
 
-Katherine can be persistent.
+Katherine can be [[persistent]].
 
-“Come to my lecture, Robert!” she had said when she had called him two weeks earlier to coax him to Prague. “It’s perfect—you’ll be on winter break. The trip is my treat.”
+“Come to my lecture, Robert!” she had said when she had called him two weeks earlier to [[coax]] him to Prague. “It’s perfect—you’ll be on [[winter break]]. The trip is my [[treat]].”
 
-Langdon considered her playful offer. The two of them had always enjoyed a platonic flirtation and mutual respect, and he was inclined to throw caution to the wind and take her up on the spontaneous proposal.
+Langdon considered her playful offer. The two of them had always enjoyed a [[platonic]] [[flirtation]] and [[mutual]] respect, and he was [[inclined]] to throw [[caution]] to the wind and [[take her up]] on the [[spontaneous]] [[proposal]].
 
-“I’m tempted, Katherine. Prague is magical, but really—”
+“I’m [[tempted]], Katherine. Prague is magical, but really—”
 
-“Let me cut to it,” she blurted. “I need a plus-one, okay? There, I said it. I need a date for my own lecture.”
+“Let me cut to it,” she [[blurted]]. “I need a plus-one, okay? There, I said it. I need a date for my own lecture.”
 
-Langdon burst out laughing. “That’s why you called? A world-famous scientist…and you need an escort?”
+Langdon [[burst out laughing]]. “That’s why you called? A world-famous scientist…and you need an [[escort]]?”
 
-“Just some arm candy, Robert. There’s a black-tie sponsors dinner, and then I’m speaking in some famous hall—Vlad…something.”
+“Just some [[arm candy]], Robert. There’s a black-tie [[sponsors]] dinner, and then I’m speaking in some famous hall—Vlad…something.”
 
 “Vladislav Hall?! In Prague Castle?”
 
 “That’s it.”
 
-Langdon was impressed. The quarterly Charles University Lecture Series was one of Europe’s most prestigious gatherings, but it was apparently more highbrow than he imagined.
+Langdon was impressed. The [[quarterly]] Charles University Lecture Series was one of Europe’s most [[prestigious]] [[gatherings]], but it was apparently more [[highbrow]] than he imagined.
 
 “Are you sure you want a symbologist on your arm at a black-tie dinner?”
 
-“I asked Clooney, but his tux is at the dry cleaner’s.”
+“I asked Clooney, but his [[tux]] is at the [[dry cleaner’s]].”
 
-Langdon groaned. “Are all noeticists this tenacious?”
+Langdon [[groaned]]. “Are all noeticists this [[tenacious]]?”
 
 “Only the good ones,” she said. “And I’ll take that as a yes.”
 
-What a difference two weeks make, Langdon mused, still smiling as he reached the other side of Charles Bridge. Prague certainly had lived up to its reputation as a magical city…a catalyst with ancient powers. Something has happened here…
+What a difference two weeks make, Langdon mused, still smiling as he reached the other side of Charles Bridge. Prague certainly had lived up to its [[reputation]] as a magical city…a [[catalyst]] with ancient powers. Something has happened here…
 
-Langdon would never forget his first day with Katherine in this mystical place—losing themselves in a labyrinth of cobblestone streets…dashing hand in hand through a misty rain…taking cover beneath an archway of Kinský Palace in Old Town Square…and there, breathless, in the shadows of the Clock Tower…their very first kiss, which felt surprisingly effortless after decades of friendship.
+Langdon would never forget his first day with Katherine in this [[mystical]] place—losing themselves in a [[labyrinth]] of [[cobblestone]] streets…[[dashing]] hand in hand through a [[misty]] rain…taking cover beneath an archway of Kinský Palace in Old Town Square…and there, [[breathless]], in the shadows of the Clock Tower…their very first kiss, which felt surprisingly [[effortless]] after decades of friendship.
 
-Whether because of Prague, perfect timing, or the guidance of some unseen hand, Langdon had no idea, but it had sparked an unexpected alchemy between them, which was growing stronger with every passing day.
+Whether because of Prague, perfect timing, or the [[guidance]] of some unseen hand, Langdon had no idea, but it had [[sparked]] an [[unexpected]] [[alchemy]] between them, which was growing stronger with every passing day.
 
 
-Across town, The Golěm turned a final corner and arrived wearily at his building. He unlocked the outer door and stepped into the meager foyer of his domicile.
+[[Across town]], The Golěm turned a final [[corner]] and arrived [[wearily]] at his building. He [[unlocked the outer door]] and stepped into the [[meager foyer]] of his [[domicile]].
 
-The entryway was dark, but he chose not to turn on the light. Instead, he slipped through a narrow passage to a hidden staircase, which he climbed in obscurity, gripping the railing for guidance. His legs ached, protesting as he ascended, and he was grateful when he finally reached his apartment door. After carefully wiping the snow from his boots, The Golěm unlocked the door and stepped inside.
+The [[entryway]] was dark, but he chose not to turn on the light. Instead, he [[slipped through]] a narrow [[passage]] to a hidden [[staircase]], which he [[climbed]] [[in obscurity]], [[gripping]] the [[railing]] for [[guidance]]. His legs [[ached]], [[protesting]] as he [[ascended]], and he was grateful when he finally reached his apartment door. After carefully wiping the snow from his boots, The Golěm unlocked the door and stepped inside.
 
 His flat was veiled in complete darkness.
 
